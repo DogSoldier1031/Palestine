@@ -69,3 +69,7 @@ https://www.politico.com/news/2022/05/29/israel-jerusalem-march-death-arabs-0003
 
 https://x.com/censoredmen/status/1717341447744045073?s=46
 
+Israel has killed 20x as many people as Hamas (at least, if you don't include indirect deaths from malnutrition, nonpotable water & lack of meds due to the Israeli blockade and control of respources) 
+
+https://www.ochaopt.org/data/casualties
+
