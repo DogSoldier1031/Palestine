@@ -73,3 +73,6 @@ Israel has killed 20x as many people as Hamas (at least, if you don't include in
 
 https://www.ochaopt.org/data/casualties
 
+Half of Gazans are children born into a concentration camp
+
+https://www.npr.org/2023/10/18/1206897328/half-of-gazas-population-is-under-18-heres-what-that-means-for-the-conflict
