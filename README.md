@@ -84,6 +84,16 @@ https://www.politico.com/news/2022/05/29/israel-jerusalem-march-death-arabs-0003
 
 https://x.com/censoredmen/status/1717341447744045073?s=46
 
+“Israel’s Defense Minister — we are fighting “human animals’”
+
+https://m.youtube.com/watch?v=3x02rCeusCI
+
+“Netanyahu deleted a post on X about a struggle against 'children of darkness' around the time of a tragic hospital explosion in Gaza”
+
+https://www.businessinsider.com/netanyahu-deleted-children-of-darkness-post-gaza-hospital-attack-2023-10?amp
+
+
+
 Israel has killed 20x as many people as Hamas (at least, if you don't include indirect deaths from malnutrition, nonpotable water & lack of meds due to the Israeli blockade and control of resources) 
 
 https://www.ochaopt.org/data/casualties
