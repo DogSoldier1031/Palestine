@@ -143,3 +143,21 @@ https://m.youtube.com/watch?v=jlkFLVCGacE
 Gabor Mate:
 
 https://twitter.com/aaronjmate/status/1718037722445881522/mediaViewer?currentTweet=1718037722445881522&currentTweetUser=aaronjmate
+
+CASUALTIES
+
+Ukraine:
+
+From 24 February 2022, which marked the start of the large-scale armed attack by the Russian Federation, to 10 September 2023, OHCHR recorded 27,149 civilian casualties in the country: 9,614 killed and 17,535 injured.
+
+https://www.ohchr.org/en/news/2023/09/ukraine-civilian-casualty-update-11-september-2023
+
+1.5 YEARS
+
+Palestine:
+
+“Israel-Palestine: Gaza death toll passes 5,000 with no ceasefire in sight”
+
+https://news.un.org/en/story/2023/10/1142687
+
+2 WEEKS
