@@ -1,7 +1,5 @@
 Palestine
 
-Theodor Herzl[a] (2 May 1860 – 3 July 1904)
-
 Theodore Hertzl letter to Cecil Rhodes:
 
 “You are being invited to help make history. That cannot frighten you, nor will you laugh at it. It is not in your accustomed line; it doesn’t involve Africa, but a piece of Asia Minor, not Englishmen but Jews. But had this been on your path, you would have done it by now. How, then, do I happen to turn to you, since this is an out-of-the-way matter for you? How indeed? Because it is something colonial.”
@@ -94,7 +92,7 @@ Half of Gazans are children born into a concentration camp
 
 https://www.npr.org/2023/10/18/1206897328/half-of-gazas-population-is-under-18-heres-what-that-means-for-the-conflict
 
-Some western journalists who have tried to warn us about Israel’s actions:
+Some western journalists & activists who have tried to warn us about Israel’s actions:
 
 Anthony Bourdain: No Reservations - Beirut (2006 Israeli Bombing)
 https://vimeo.com/209124416
@@ -126,4 +124,12 @@ https://m.youtube.com/watch?v=lFoxL3sOAio
 Gaza Fights For Freedom (2019) | Full Documentary | Directed by Abby Martin
 https://m.youtube.com/watch?v=HnZSaKYmP2s
 
+Norman Finkelstein:
 
+https://m.youtube.com/watch?v=nUfWTHbCS78
+
+https://m.youtube.com/watch?v=jlkFLVCGacE
+
+Gabor Mate:
+
+https://twitter.com/aaronjmate/status/1718037722445881522/mediaViewer?currentTweet=1718037722445881522&currentTweetUser=aaronjmate
