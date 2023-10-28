@@ -1,4 +1,21 @@
- Palestine
+Palestine
+
+Theodor Herzl[a] (2 May 1860 – 3 July 1904)
+
+Theodore Hertzl letter to Cecil Rhodes:
+
+“You are being invited to help make history. That cannot frighten you, nor will you laugh at it. It is not in your accustomed line; it doesn’t involve Africa, but a piece of Asia Minor, not Englishmen but Jews. But had this been on your path, you would have done it by now. How, then, do I happen to turn to you, since this is an out-of-the-way matter for you? How indeed? Because it is something colonial.”
+
+https://journals.sagepub.com/doi/10.1177/0032329221999906#fn13-0032329221999906
+
+UN: Origins and Evolution of the Palestine Problem: 1917-1947 (Part I)
+
+“The decision on the Mandate did not take into account the wishes of the people of Palestine, despite the Covenant’s requirements that “the wishes of these communities must be a principal consideration in the selection of the Mandatory”. This assumed special significance because, almost five years before receiving the mandate from the League of Nations, the British Government had given commitments to the Zionist Organization regarding the establishment of a Jewish national home in Palestine, for which Zionist leaders had pressed a claim of “historical connection” since their ancestors had lived in Palestine two thousand years earlier before dispersing in the “Diaspora”.
+During the period of the Mandate, the Zionist Organization worked to secure the establishment of a Jewish national home in Palestine. The indigenous people of Palestine, whose forefathers had inhabited the land for virtually the two preceding millennia felt this design to be a violation of their natural and inalienable rights. They also viewed it as an infringement of assurances of independence given by the Allied Powers to Arab leaders in return for their support during the war. The result was mounting resistance to the Mandate by Palestinian Arabs, followed by resort to violence by the Jewish community as the Second World War drew to a close”
+
+https://www.un.org/unispal/history2/origins-and-evolution-of-the-palestine-problem/part-i-1917-1947/
+
+
 
 Israeli Origins in terror and ethnic cleansing:
 
