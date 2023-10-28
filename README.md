@@ -76,3 +76,37 @@ https://www.ochaopt.org/data/casualties
 Half of Gazans are children born into a concentration camp
 
 https://www.npr.org/2023/10/18/1206897328/half-of-gazas-population-is-under-18-heres-what-that-means-for-the-conflict
+
+Some western journalists who have tried to warn us about Israel’s actions:
+
+Anthony Bourdain: No Reservations - Beirut (2006 Israeli Bombing)
+https://vimeo.com/209124416
+
+Daily Show Compilation (2009/2014)
+https://m.facebook.com/pakistanidefence/videos/jon-stewart-destroys-israel/10152330001112663/
+
+Parts Unknown: Jerusalem (2013)
+https://m.youtube.com/watch?v=riZic8b49w8
+
+Anthony Bourdain on Palestine (2014)
+https://m.facebook.com/ajplusenglish/videos/anthony-bourdain-on-palestine/1215374768604028/
+
+The Daily Show - We Need to Talk About Israel (2014)
+https://m.youtube.com/watch?v=zmCKZYKsiGM
+
+The Israeli-Palestinian Conflict “On The Ground” Coverage VICE News (2014 - )
+https://m.youtube.com/playlist?list=PLw613M86o5o4p6n-M6A_3PU0OQbB4Hgwp
+
+Empire Files: Inside Palestine’s Refugee Camps (Oct 6 2016)
+https://m.youtube.com/watch?v=HxvNZisaB8E
+
+Abby Martin Reveals The Truth Behind The Headlines with Lee Camp
+https://moc.libsyn.com/414-abby-martin-reveals-the-truth-behind-the-headlines-with-lee-camp
+
+Everyday Israelis Express Support for Genocide to Abby Martin (2017)
+https://m.youtube.com/watch?v=lFoxL3sOAio
+
+Gaza Fights For Freedom (2019) | Full Documentary | Directed by Abby Martin
+https://m.youtube.com/watch?v=HnZSaKYmP2s
+
+
