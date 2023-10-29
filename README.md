@@ -156,7 +156,9 @@ https://www.ohchr.org/en/news/2023/09/ukraine-civilian-casualty-update-11-septem
 
 Palestine:
 
-“Israel-Palestine: Gaza death toll passes 5,000 with no ceasefire in sight”
+“Israel-Palestine: Gaza death toll passes 5,000 with no ceasefire in sight
+
+Women and children have made up more than 62 per cent of the fatalities, while more than 15,273 people have been injured."
 
 https://news.un.org/en/story/2023/10/1142687
 
