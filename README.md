@@ -23,6 +23,8 @@ https://en.m.wikipedia.org/wiki/Lehi_(militant_group)
 
 https://en.m.wikipedia.org/wiki/Haganah
 
+https://x.com/trickyjabs/status/1718887609211011208?s=46
+
 https://x.com/propandco/status/1716970010009116809?s=46
 
 https://m.youtube.com/watch?si=FLu-gpdUbv3jNzuo&v=H7FML0wzJ6A&feature=youtu.be
