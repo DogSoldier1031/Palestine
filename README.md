@@ -104,6 +104,18 @@ Half of Gazans are children born into a concentration camp
 
 https://www.npr.org/2023/10/18/1206897328/half-of-gazas-population-is-under-18-heres-what-that-means-for-the-conflict
 
+IDF soldiers have been kidnapping, imprisoning, torturing and raping Palestinians for years but no one criticizes people for supporting Israel in spite of it:
+
+https://www.cair.com/cair_in_the_news/israeli-guards-rape-palestinian-women/
+
+https://genderandsecurity.org/sites/default/files/Weishut_-_Sexual_Torture_of_Palestinian_M_by_Israeli_Authorities.pdf
+
+https://www.aljazeera.com/amp/features/2023/10/21/number-of-palestinian-prisoners-in-israel-doubles-to-10000-in-two-weeks
+
+“However, the International Court of Justice (ICJ) ruled in its 2004 advisory opinion that Israel could not invoke Article 51 against a threat coming from an occupied territory over which it has control but that it has the right to respond with actions in conformity with applicable international law.”
+
+https://www.atlanticcouncil.org/blogs/menasource/gaza-israel-occupied-international-law/#:~:text=However%2C%20the%20International%20Court%20of%20Justice%20(ICJ),actions%20in%20conformity%20with%20applicable%20international%20law.
+
 Some western journalists & activists who have tried to warn us about Israel’s actions:
 
 Anthony Bourdain: No Reservations - Beirut (2006 Israeli Bombing)
@@ -165,3 +177,4 @@ Women and children have made up more than 62 per cent of the fatalities, while m
 https://news.un.org/en/story/2023/10/1142687
 
 2 WEEKS
+
