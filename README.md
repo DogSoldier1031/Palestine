@@ -84,6 +84,8 @@ https://amp.theguardian.com/world/2014/jul/20/israelis-cheer-gaza-bombing
 
 https://www.politico.com/news/2022/05/29/israel-jerusalem-march-death-arabs-00035862
 
+https://www.reddit.com/r/TheDeprogram/s/SHNdOQqiTf
+
 https://x.com/censoredmen/status/1717341447744045073?s=46
 
 “Israel’s Defense Minister — we are fighting “human animals’”
