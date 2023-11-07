@@ -96,7 +96,13 @@ https://m.youtube.com/watch?v=3x02rCeusCI
 
 https://www.businessinsider.com/netanyahu-deleted-children-of-darkness-post-gaza-hospital-attack-2023-10?amp
 
+https://x.com/terror_alarm/status/1720928284853071879?s=46
 
+The Israeli government propped up Hamas against more progressive liberatory factions such as the PLO/DFLP/etc.
+
+https://www.timesofisrael.com/for-years-netanyahu-propped-up-hamas-now-its-blown-up-in-our-faces/amp/
+
+https://theintercept.com/2018/02/19/hamas-israel-palestine-conflict/
 
 Israel has killed 20x as many people as Hamas (at least, if you don't include indirect deaths from malnutrition, nonpotable water & lack of meds due to the Israeli blockade and control of resources) 
 
