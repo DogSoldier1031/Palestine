@@ -130,6 +130,20 @@ https://www.aljazeera.com/amp/features/2023/10/21/number-of-palestinian-prisoner
 
 https://www.atlanticcouncil.org/blogs/menasource/gaza-israel-occupied-international-law/#:~:text=However%2C%20the%20International%20Court%20of%20Justice%20(ICJ),actions%20in%20conformity%20with%20applicable%20international%20law.
 
+CASUALTIES
+
+Ukraine:  “From 24 February 2022, which marked the start of the large-scale armed attack by the Russian Federation, to 10 September 2023, OHCHR recorded 27,149 civilian casualties in the country: 9,614 killed and 17,535 injured.”
+
+https://www.ohchr.org/en/news/2023/09/ukraine-civilian-casualty-update-11-september-2023
+
+1.5 YEARS
+
+“Gaza death toll tops 10,000; UN calls it a children's graveyard”
+
+https://www.reuters.com/world/middle-east/pressure-israel-over-civilians-steps-up-ceasefire-calls-rebuffed-2023-11-06/
+
+1 MONTH
+
 Some western journalists & activists who have tried to warn us about Israel’s actions:
 
 Anthony Bourdain: No Reservations - Beirut (2006 Israeli Bombing)
@@ -172,23 +186,5 @@ Gabor Mate:
 
 https://twitter.com/aaronjmate/status/1718037722445881522/mediaViewer?currentTweet=1718037722445881522&currentTweetUser=aaronjmate
 
-CASUALTIES
 
-Ukraine:
-
-From 24 February 2022, which marked the start of the large-scale armed attack by the Russian Federation, to 10 September 2023, OHCHR recorded 27,149 civilian casualties in the country: 9,614 killed and 17,535 injured.
-
-https://www.ohchr.org/en/news/2023/09/ukraine-civilian-casualty-update-11-september-2023
-
-1.5 YEARS
-
-Palestine:
-
-“Israel-Palestine: Gaza death toll passes 5,000 with no ceasefire in sight
-
-Women and children have made up more than 62 per cent of the fatalities, while more than 15,273 people have been injured."
-
-https://news.un.org/en/story/2023/10/1142687
-
-2 WEEKS
 
