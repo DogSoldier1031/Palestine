@@ -13,8 +13,6 @@ During the period of the Mandate, the Zionist Organization worked to secure the 
 
 https://www.un.org/unispal/history2/origins-and-evolution-of-the-palestine-problem/part-i-1917-1947/
 
-
-
 Israeli Origins in terror and ethnic cleansing:
 
 https://en.m.wikipedia.org/wiki/Irgun
@@ -67,6 +65,14 @@ https://www.livescience.com/40247-ashkenazi-jews-have-european-genes.html
 https://www.jta.org/2019/03/05/ideas/mizrahi-jewish-spies-fought-to-build-israel-their-descendants-still-encounter-racism-there
 
 https://amp.theguardian.com/world/2013/feb/28/ethiopian-women-given-contraceptives-israel
+
+They barely hide their eugenicist ideology:
+
+“By law genetic information/genetic testing may require obtaining explanations from a doctor and informed consent to perform the test, and should be checked only in the laboratory by a genetic institute recognized and licensed. Such a thing can not exist kits sold directly to the public," the Ministry of Health told Israeli publication Yediot Aharonot. "Such kits are also highly criticized, for their reliability, for the interpretation of their results, and for possible effects on subjects and their families."
+
+“The government uses these measures to protect the public so that insurance companies, private parties, et cetera won't misuse the private information for personal gain, as well as the national implications these tests could hold or affect with Israel being a government recognized Jewish-state.”
+
+https://m.jpost.com/israel-news/want-to-fully-understand-your-family-genealogy-not-without-a-court-order-585230
 
 They were literally allies with apartheid South Africa:
 
