@@ -104,7 +104,7 @@ https://www.businessinsider.com/netanyahu-deleted-children-of-darkness-post-gaza
 
 https://x.com/terror_alarm/status/1720928284853071879?s=46
 
-The Israeli government propped up Hamas against more progressive liberatory factions such as the PLO/DFLP/etc.
+The Israeli government propped up Hamas against more progressive liberatory factions such as the PLO member parties
 
 https://www.timesofisrael.com/for-years-netanyahu-propped-up-hamas-now-its-blown-up-in-our-faces/amp/
 
