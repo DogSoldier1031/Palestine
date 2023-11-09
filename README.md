@@ -150,6 +150,13 @@ https://www.reuters.com/world/middle-east/pressure-israel-over-civilians-steps-u
 
 1 MONTH
 
+Not to mention a bunch of human rights officials speaking out against Israel’s genocidal intents 
+
+https://euromedmonitor.org/en/article/5914/Scholars’-consensus:-Genocide-in-Gaza-marks-turning-point,-Israel-must-be-held-accountable
+
+https://amp.theguardian.com/world/2023/oct/31/un-official-resigns-israel-hamas-war-palestine-new-york
+
+
 Some western journalists & activists who have tried to warn us about Israel’s actions:
 
 Anthony Bourdain: No Reservations - Beirut (2006 Israeli Bombing)
