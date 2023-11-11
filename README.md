@@ -132,6 +132,18 @@ https://genderandsecurity.org/sites/default/files/Weishut_-_Sexual_Torture_of_Pa
 
 https://www.aljazeera.com/amp/features/2023/10/21/number-of-palestinian-prisoners-in-israel-doubles-to-10000-in-two-weeks
 
+And they’ve been slaughtering children that whole time too without remorse:
+
+https://www.aljazeera.com/amp/news/2004/4/13/palestinian-children-killed-by-israel
+
+https://amp.theguardian.com/world/2006/jul/16/israelandthepalestinians.syria1
+
+https://amp.theguardian.com/world/2006/nov/08/israel2
+
+https://amp.theguardian.com/world/2015/jun/11/israel-clears-military-gaza-beach-children
+
+
+
 “However, the International Court of Justice (ICJ) ruled in its 2004 advisory opinion that Israel could not invoke Article 51 against a threat coming from an occupied territory over which it has control but that it has the right to respond with actions in conformity with applicable international law.”
 
 https://www.atlanticcouncil.org/blogs/menasource/gaza-israel-occupied-international-law/#:~:text=However%2C%20the%20International%20Court%20of%20Justice%20(ICJ),actions%20in%20conformity%20with%20applicable%20international%20law.
