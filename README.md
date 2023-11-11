@@ -168,6 +168,9 @@ https://euromedmonitor.org/en/article/5914/Scholars’-consensus:-Genocide-in-Ga
 
 https://amp.theguardian.com/world/2023/oct/31/un-official-resigns-israel-hamas-war-palestine-new-york
 
+The Israeli version of killing the buffaloes
+
+https://x.com/saranajmaii/status/1723379292489363901?s=46
 
 Some western journalists & activists who have tried to warn us about Israel’s actions:
 
