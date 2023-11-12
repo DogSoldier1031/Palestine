@@ -64,7 +64,7 @@ https://www.livescience.com/40247-ashkenazi-jews-have-european-genes.html
 
 https://www.jta.org/2019/03/05/ideas/mizrahi-jewish-spies-fought-to-build-israel-their-descendants-still-encounter-racism-there
 
-https://amp.theguardian.com/world/2013/feb/28/ethiopian-women-given-contraceptives-israel
+https://www.theguardian.com/world/2013/feb/28/ethiopian-women-given-contraceptives-israel
 
 They barely hide their eugenicist ideology:
 
@@ -76,17 +76,17 @@ https://m.jpost.com/israel-news/want-to-fully-understand-your-family-genealogy-n
 
 They were literally allies with apartheid South Africa:
 
-https://amp.theguardian.com/world/2006/feb/07/southafrica.israel
+https://www.theguardian.com/world/2006/feb/07/southafrica.israel
 
 Nelson Mandela & Desmond Tutu both saw them as a brutal apartheid state:
 
 https://www.middleeasteye.net/news/nelson-mandela-30-years-palestine
 
-https://amp.theguardian.com/commentisfree/2021/dec/30/desmond-tutu-palestinians-israel
+https://www.theguardian.com/commentisfree/2021/dec/30/desmond-tutu-palestinians-israel
 
 Israeli society is awash in bigotry and hate:
 
-https://amp.theguardian.com/world/2014/jul/20/israelis-cheer-gaza-bombing
+https://www.theguardian.com/world/2014/jul/20/israelis-cheer-gaza-bombing
 
 https://www.politico.com/news/2022/05/29/israel-jerusalem-march-death-arabs-00035862
 
@@ -136,11 +136,11 @@ And they’ve been slaughtering children that whole time too without remorse:
 
 https://www.aljazeera.com/amp/news/2004/4/13/palestinian-children-killed-by-israel
 
-https://amp.theguardian.com/world/2006/jul/16/israelandthepalestinians.syria1
+https://www.theguardian.com/world/2006/jul/16/israelandthepalestinians.syria1
 
-https://amp.theguardian.com/world/2006/nov/08/israel2
+https://www.theguardian.com/world/2006/nov/08/israel2
 
-https://amp.theguardian.com/world/2015/jun/11/israel-clears-military-gaza-beach-children
+https://www.theguardian.com/world/2015/jun/11/israel-clears-military-gaza-beach-children
 
 
 
@@ -166,7 +166,7 @@ Not to mention a bunch of human rights officials speaking out against Israel’s
 
 https://euromedmonitor.org/en/article/5914/Scholars’-consensus:-Genocide-in-Gaza-marks-turning-point,-Israel-must-be-held-accountable
 
-https://amp.theguardian.com/world/2023/oct/31/un-official-resigns-israel-hamas-war-palestine-new-york
+https://www.theguardian.com/world/2023/oct/31/un-official-resigns-israel-hamas-war-palestine-new-york
 
 The Israeli version of killing the buffaloes
 
