@@ -142,8 +142,6 @@ https://www.theguardian.com/world/2006/nov/08/israel2
 
 https://www.theguardian.com/world/2015/jun/11/israel-clears-military-gaza-beach-children
 
-
-
 “However, the International Court of Justice (ICJ) ruled in its 2004 advisory opinion that Israel could not invoke Article 51 against a threat coming from an occupied territory over which it has control but that it has the right to respond with actions in conformity with applicable international law.”
 
 https://www.atlanticcouncil.org/blogs/menasource/gaza-israel-occupied-international-law/#:~:text=However%2C%20the%20International%20Court%20of%20Justice%20(ICJ),actions%20in%20conformity%20with%20applicable%20international%20law.
@@ -177,6 +175,8 @@ Arab "Mizrahi" Jews
 https://m.youtube.com/watch?v=lfDhaWlqXf8
 
 https://www.middleeasteye.net/news/iraq-jews-attacks-zionist-role-confirmed-operative-police-report
+
+https://en.m.wikipedia.org/wiki/Operation_Ezra_and_Nehemiah
 
 https://en.m.wikipedia.org/wiki/Jewish_exodus_from_the_Muslim_world
 
