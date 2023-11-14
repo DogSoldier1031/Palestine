@@ -172,6 +172,12 @@ The Israeli version of killing the buffaloes
 
 https://x.com/saranajmaii/status/1723379292489363901?s=46
 
+Arab "Mizrahi" Jews
+
+https://m.youtube.com/watch?v=lfDhaWlqXf8
+
+https://www.middleeasteye.net/news/iraq-jews-attacks-zionist-role-confirmed-operative-police-report
+
 Some western journalists & activists who have tried to warn us about Israel’s actions:
 
 Anthony Bourdain: No Reservations - Beirut (2006 Israeli Bombing)
