@@ -170,7 +170,9 @@ The Israeli version of killing the buffaloes
 
 https://x.com/saranajmaii/status/1723379292489363901?s=46
 
-Arab "Mizrahi" Jews
+Misc Info on Arab/Muslim/Jewish/Christian/etc Relations
+
+https://www.ida2at.com/how-did-arabs-and-jews-live-in-palestine-before-1948-ad/
 
 https://m.youtube.com/watch?v=lfDhaWlqXf8
 
