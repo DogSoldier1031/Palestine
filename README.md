@@ -180,6 +180,8 @@ https://www.middleeasteye.net/news/iraq-jews-attacks-zionist-role-confirmed-oper
 
 https://en.m.wikipedia.org/wiki/Jewish_exodus_from_the_Muslim_world
 
+https://en.m.wikipedia.org/wiki/Farhud
+
 Some western journalists & activists who have tried to warn us about Israel’s actions:
 
 Anthony Bourdain: No Reservations - Beirut (2006 Israeli Bombing)
