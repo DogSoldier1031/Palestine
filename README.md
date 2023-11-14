@@ -178,6 +178,8 @@ https://m.youtube.com/watch?v=lfDhaWlqXf8
 
 https://www.middleeasteye.net/news/iraq-jews-attacks-zionist-role-confirmed-operative-police-report
 
+https://en.m.wikipedia.org/wiki/Jewish_exodus_from_the_Muslim_world
+
 Some western journalists & activists who have tried to warn us about Israel’s actions:
 
 Anthony Bourdain: No Reservations - Beirut (2006 Israeli Bombing)
