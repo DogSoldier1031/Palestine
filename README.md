@@ -190,6 +190,8 @@ https://en.m.wikipedia.org/wiki/Jewish_exodus_from_the_Muslim_world
 
 https://en.m.wikipedia.org/wiki/Farhud
 
+https://en.m.wikipedia.org/wiki/1982_Lebanon_War
+
 https://www.theguardian.com/world/2007/mar/09/syria.israelandthepalestinians
 
 https://en.m.wikipedia.org/wiki/Allegations_of_war_crimes_in_the_2006_Lebanon_War
