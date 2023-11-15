@@ -188,6 +188,8 @@ https://www.theguardian.com/world/2007/mar/09/syria.israelandthepalestinians
 
 https://en.m.wikipedia.org/wiki/Allegations_of_war_crimes_in_the_2006_Lebanon_War
 
+https://www.hrw.org/news/2006/08/02/israel/lebanon-end-indiscriminate-strikes-civilians
+
 Some western journalists & activists who have tried to warn us about Israel’s actions:
 
 Anthony Bourdain - No Reservations - Beirut
