@@ -192,7 +192,7 @@ https://www.hrw.org/news/2006/08/02/israel/lebanon-end-indiscriminate-strikes-ci
 
 Some western journalists & activists who have tried to warn us about Israel’s actions:
 
-Anthony Bourdain - No Reservations - Beirut
+Anthony Bourdain - No Reservations - Beirut (2006)
 https://vimeo.com/209124416
 
 Daily Show Compilation (2009/2014)
