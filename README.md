@@ -186,6 +186,8 @@ https://en.m.wikipedia.org/wiki/Farhud
 
 https://www.theguardian.com/world/2007/mar/09/syria.israelandthepalestinians
 
+https://en.m.wikipedia.org/wiki/Allegations_of_war_crimes_in_the_2006_Lebanon_War
+
 Some western journalists & activists who have tried to warn us about Israel’s actions:
 
 Anthony Bourdain: No Reservations - Beirut (2006 Israeli Bombing)
