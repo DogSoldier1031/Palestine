@@ -184,6 +184,8 @@ https://en.m.wikipedia.org/wiki/Jewish_exodus_from_the_Muslim_world
 
 https://en.m.wikipedia.org/wiki/Farhud
 
+https://www.theguardian.com/world/2007/mar/09/syria.israelandthepalestinians
+
 Some western journalists & activists who have tried to warn us about Israel’s actions:
 
 Anthony Bourdain: No Reservations - Beirut (2006 Israeli Bombing)
