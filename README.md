@@ -176,7 +176,26 @@ The Israeli version of killing the buffaloes
 
 https://x.com/saranajmaii/status/1723379292489363901?s=46
 
-Misc Info Regional Relations
+Lebanon-Palestine-Israel
+
+https://en.m.wikipedia.org/wiki/Palestinian_insurgency_in_South_Lebanon
+
+https://en.m.wikipedia.org/wiki/1982_Lebanon_War
+
+https://en.m.wikipedia.org/wiki/Sabra_and_Shatila_massacre
+
+https://www.theguardian.com/world/2007/mar/09/syria.israelandthepalestinians
+
+https://en.m.wikipedia.org/wiki/Allegations_of_war_crimes_in_the_2006_Lebanon_War
+
+https://www.hrw.org/news/2006/08/02/israel/lebanon-end-indiscriminate-strikes-civilians
+
+Some western journalists & activists who have tried to warn us about Israel’s actions:
+
+Anthony Bourdain - No Reservations - Beirut (2006)
+https://vimeo.com/209124416
+
+Wider Arab Muslim/Arab Jew/Mizrahi/Jewish Relations
 
 https://www.ida2at.com/how-did-arabs-and-jews-live-in-palestine-before-1948-ad/
 
@@ -189,19 +208,6 @@ https://en.m.wikipedia.org/wiki/Operation_Ezra_and_Nehemiah
 https://en.m.wikipedia.org/wiki/Jewish_exodus_from_the_Muslim_world
 
 https://en.m.wikipedia.org/wiki/Farhud
-
-https://en.m.wikipedia.org/wiki/1982_Lebanon_War
-
-https://www.theguardian.com/world/2007/mar/09/syria.israelandthepalestinians
-
-https://en.m.wikipedia.org/wiki/Allegations_of_war_crimes_in_the_2006_Lebanon_War
-
-https://www.hrw.org/news/2006/08/02/israel/lebanon-end-indiscriminate-strikes-civilians
-
-Some western journalists & activists who have tried to warn us about Israel’s actions:
-
-Anthony Bourdain - No Reservations - Beirut (2006)
-https://vimeo.com/209124416
 
 Daily Show Compilation (2009/2014)
 https://m.facebook.com/pakistanidefence/videos/jon-stewart-destroys-israel/10152330001112663/
