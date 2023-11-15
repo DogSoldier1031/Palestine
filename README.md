@@ -193,6 +193,9 @@ https://www.hrw.org/news/2006/08/02/israel/lebanon-end-indiscriminate-strikes-ci
 Anthony Bourdain: No Reservations - Beirut (2006)
 https://vimeo.com/209124416
 
+Jordan-Palestine-Israel
+
+https://en.m.wikipedia.org/wiki/Black_September
 
 Wider Arab Muslim/Arab Jew/Mizrahi/Jewish Relations
 
@@ -207,6 +210,8 @@ https://en.m.wikipedia.org/wiki/Operation_Ezra_and_Nehemiah
 https://en.m.wikipedia.org/wiki/Jewish_exodus_from_the_Muslim_world
 
 https://en.m.wikipedia.org/wiki/Farhud
+
+https://en.m.wikipedia.org/wiki/Palestinian_refugee_camps
 
 Daily Show Compilation (2009/2014)
 https://m.facebook.com/pakistanidefence/videos/jon-stewart-destroys-israel/10152330001112663/
