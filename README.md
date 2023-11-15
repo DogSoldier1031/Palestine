@@ -170,7 +170,7 @@ The Israeli version of killing the buffaloes
 
 https://x.com/saranajmaii/status/1723379292489363901?s=46
 
-Misc Info on Arab/Muslim/Jewish/Christian/etc Relations
+Misc Info Regional Relations
 
 https://www.ida2at.com/how-did-arabs-and-jews-live-in-palestine-before-1948-ad/
 
