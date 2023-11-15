@@ -190,6 +190,9 @@ https://en.m.wikipedia.org/wiki/Allegations_of_war_crimes_in_the_2006_Lebanon_Wa
 
 Some western journalists & activists who have tried to warn us about Israel’s actions:
 
+Anthony Bourdain - No Reservations - Beirut
+https://vimeo.com/209124416
+
 Daily Show Compilation (2009/2014)
 https://m.facebook.com/pakistanidefence/videos/jon-stewart-destroys-israel/10152330001112663/
 
