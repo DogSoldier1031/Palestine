@@ -1,4 +1,4 @@
-Palestine
+Palestine & Region
 
 Theodore Hertzl letter to Cecil Rhodes:
 
