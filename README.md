@@ -166,6 +166,12 @@ https://euromedmonitor.org/en/article/5914/Scholars’-consensus:-Genocide-in-Ga
 
 https://www.theguardian.com/world/2023/oct/31/un-official-resigns-israel-hamas-war-palestine-new-york
 
+The Mossad Version of Operation Paperclip
+
+https://www.haaretz.com/magazine/2023-06-01/ty-article-magazine/.premium/revealed-how-israel-turned-nazi-war-criminals-into-mossad-agents/00000188-773a-dd65-abae-773a75190000
+
+https://www.jewishvirtuallibrary.org/otto-skorzeny
+
 The Israeli version of killing the buffaloes
 
 https://x.com/saranajmaii/status/1723379292489363901?s=46
