@@ -252,3 +252,5 @@ https://twitter.com/aaronjmate/status/1718037722445881522/mediaViewer?currentTwe
 
 
 
+https://www.reddit.com/r/Palestine/s/FY7Da0rRyS
+
