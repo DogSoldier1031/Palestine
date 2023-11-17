@@ -262,7 +262,7 @@ Zionism: cycles of trauma and aggression in the service of settler colonialism
 
 https://mronline.org/2018/11/28/zionism-cycles-of-trauma-and-aggression-in-the-service-of-settler-colonialism/
 
-
+https://www.reddit.com/r/israelexposed/s/NcjzegdFr1
 
 https://www.reddit.com/r/CommunismMemes/s/kxR0Yow8Oy
 
