@@ -258,4 +258,11 @@ MISC LINKS
 
 https://www.aljazeera.com/amp/opinions/2023/11/16/apartheid-south-africa-reached-a-tipping-point-israel-will-too
 
+Zionism: cycles of trauma and aggression in the service of settler colonialism
+
+https://mronline.org/2018/11/28/zionism-cycles-of-trauma-and-aggression-in-the-service-of-settler-colonialism/
+
+
+
 https://www.reddit.com/r/CommunismMemes/s/kxR0Yow8Oy
+
