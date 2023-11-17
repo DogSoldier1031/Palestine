@@ -250,7 +250,10 @@ Gabor Mate:
 
 https://twitter.com/aaronjmate/status/1718037722445881522/mediaViewer?currentTweet=1718037722445881522&currentTweetUser=aaronjmate
 
-
-
 https://www.reddit.com/r/Palestine/s/FY7Da0rRyS
 
+MISC LINKS
+
+"Apartheid South Africa reached a tipping point, Israel will, too"
+
+https://www.aljazeera.com/amp/opinions/2023/11/16/apartheid-south-africa-reached-a-tipping-point-israel-will-too
