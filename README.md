@@ -269,3 +269,8 @@ https://www.reddit.com/r/israelexposed/s/NcjzegdFr1
 https://www.reddit.com/r/CommunismMemes/s/kxR0Yow8Oy
 
 https://x.com/jaketapper/status/1724955462775251270?s=46
+
+Survey: 25% US Jewish voters agree “Israel is an apartheid state” and 22% agree “Israel is committing genocide against the Palestinians”
+
+https://medium.com/@chrisjeffrieshomelessromantic/survey-25-us-jewish-voters-agree-israel-is-an-apartheid-state-and-22-agree-israel-is-b3de082ea6ff
+
