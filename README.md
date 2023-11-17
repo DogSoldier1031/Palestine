@@ -268,3 +268,4 @@ https://www.reddit.com/r/israelexposed/s/NcjzegdFr1
 
 https://www.reddit.com/r/CommunismMemes/s/kxR0Yow8Oy
 
+https://x.com/jaketapper/status/1724955462775251270?s=46
