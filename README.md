@@ -257,3 +257,5 @@ MISC LINKS
 "Apartheid South Africa reached a tipping point, Israel will, too"
 
 https://www.aljazeera.com/amp/opinions/2023/11/16/apartheid-south-africa-reached-a-tipping-point-israel-will-too
+
+https://www.reddit.com/r/CommunismMemes/s/kxR0Yow8Oy
