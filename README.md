@@ -246,6 +246,8 @@ https://m.youtube.com/watch?v=nUfWTHbCS78
 
 https://m.youtube.com/watch?v=jlkFLVCGacE
 
+https://m.youtube.com/watch?si=wAbe_fSYEatPPUhv&v=8RAN2fNZDTE&feature=youtu.be
+
 Gabor Mate:
 
 https://twitter.com/aaronjmate/status/1718037722445881522/mediaViewer?currentTweet=1718037722445881522&currentTweetUser=aaronjmate
