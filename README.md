@@ -174,7 +174,6 @@ https://euromedmonitor.org/en/article/5914/Scholars’-consensus:-Genocide-in-Ga
 
 https://www.theguardian.com/world/2023/oct/31/un-official-resigns-israel-hamas-war-palestine-new-york
 
-.
 
 OCTOBER 7th Attack Details
 
@@ -188,6 +187,8 @@ https://www.haaretz.com/israel-news/2023-10-19/ty-article-magazine/israels-dead-
 
 “Israel revises down toll from October 7 attack to ‘around 1,200’”
 https://www.aljazeera.com/amp/news/2023/11/10/israel-revises-death-toll-from-october-7-hamas-attack-to-1200-people
+
+https://www.haaretz.com/israel-news/2023-11-18/ty-article/.premium/israeli-security-establishment-hamas-likely-didnt-have-prior-knowledge-of-nova-festival/0000018b-e2ee-d168-a3ef-f7fe8ca20000
 
 The Mossad Version of Operation Paperclip
 
