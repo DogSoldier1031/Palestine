@@ -291,3 +291,5 @@ https://medium.com/@chrisjeffrieshomelessromantic/survey-25-us-jewish-voters-agr
 
 https://www.reddit.com/r/IsraelCrimes/s/TynaC5swWD
 
+https://www.reddit.com/r/socialism/s/4Divym0Viw
+
