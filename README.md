@@ -166,6 +166,21 @@ https://euromedmonitor.org/en/article/5914/Scholars’-consensus:-Genocide-in-Ga
 
 https://www.theguardian.com/world/2023/oct/31/un-official-resigns-israel-hamas-war-palestine-new-york
 
+.
+
+OCTOBER 7th Attack Details
+
+“Israeli forces shot their own civilians, kibbutz survivor says”
+
+“A growing number of reports indicate Israeli forces responsible for Israeli civilian and military deaths following October 7 attack”
+https://mondoweiss.net/2023/10/a-growing-number-of-reports-indicate-israeli-forces-responsible-for-israeli-civilian-and-military-deaths-following-october-7-attack/
+
+“Israel's Dead: The Names of Those Killed in Hamas Attacks, Massacres and the Israel-Hamas War”
+https://www.haaretz.com/israel-news/2023-10-19/ty-article-magazine/israels-dead-the-names-of-those-killed-in-hamas-massacres-and-the-israel-hamas-war/0000018b-325c-d450-a3af-7b5cf0210000
+
+“Israel revises down toll from October 7 attack to ‘around 1,200’”
+https://www.aljazeera.com/amp/news/2023/11/10/israel-revises-death-toll-from-october-7-hamas-attack-to-1200-people
+
 The Mossad Version of Operation Paperclip
 
 https://www.haaretz.com/magazine/2023-06-01/ty-article-magazine/.premium/revealed-how-israel-turned-nazi-war-criminals-into-mossad-agents/00000188-773a-dd65-abae-773a75190000
