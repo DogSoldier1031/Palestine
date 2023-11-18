@@ -78,6 +78,14 @@ They were literally allies with apartheid South Africa:
 
 https://www.theguardian.com/world/2006/feb/07/southafrica.israel
 
+Which is part of an ongoing pattern of horrible meddling in African affairs:
+
+https://www.i24news.tv/en/news/international/africa/1556826403-israel-was-aware-of-violence-against-hutus-before-rwandan-genocide-new-documents-show
+
+https://www.timesofisrael.com/breaking-with-west-israel-backs-rwanda-in-renaming-genocide/amp/
+
+https://mondoweiss.net/2020/12/human-rights-watch-gives-israels-blood-diamonds-a-free-pass/
+
 Nelson Mandela & Desmond Tutu both saw them as a brutal apartheid state:
 
 https://www.middleeasteye.net/news/nelson-mandela-30-years-palestine
