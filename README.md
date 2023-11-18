@@ -293,3 +293,5 @@ https://www.reddit.com/r/IsraelCrimes/s/TynaC5swWD
 
 https://www.reddit.com/r/socialism/s/4Divym0Viw
 
+https://www.reddit.com/r/AskMiddleEast/s/EAbSk0MUsO
+
