@@ -289,3 +289,5 @@ Survey: 25% US Jewish voters agree “Israel is an apartheid state” and 22% ag
 
 https://medium.com/@chrisjeffrieshomelessromantic/survey-25-us-jewish-voters-agree-israel-is-an-apartheid-state-and-22-agree-israel-is-b3de082ea6ff
 
+https://www.reddit.com/r/IsraelCrimes/s/TynaC5swWD
+
