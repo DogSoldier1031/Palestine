@@ -306,4 +306,6 @@ https://www.reddit.com/r/AskMiddleEast/s/EAbSk0MUsO
 
 https://www.amnesty.org/en/latest/campaigns/2017/11/the-occupation-of-water/
 
+https://mondoweiss.net/2017/11/charles-decried-courage/
+
 
