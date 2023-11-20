@@ -2,6 +2,8 @@ Palestine & Region
 
 https://x.com/ousmannoor/status/1725851968193642611?s=46
 
+https://x.com/robinmonotti/status/1726269331573792791?s=46
+
 Theodore Hertzl letter to Cecil Rhodes:
 
 “You are being invited to help make history. That cannot frighten you, nor will you laugh at it. It is not in your accustomed line; it doesn’t involve Africa, but a piece of Asia Minor, not Englishmen but Jews. But had this been on your path, you would have done it by now. How, then, do I happen to turn to you, since this is an out-of-the-way matter for you? How indeed? Because it is something colonial.”
