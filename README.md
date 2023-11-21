@@ -243,6 +243,10 @@ https://en.m.wikipedia.org/wiki/Farhud
 
 https://en.m.wikipedia.org/wiki/Palestinian_refugee_camps
 
+"In fact, a lot depends on context. The Likud Party of Israeli Prime Minister Benjamin Netanyahu said in its original party platform in 1977 that "between the Sea and the Jordan there will only be Israeli sovereignty.'"
+
+https://www.npr.org/2023/11/09/1211671117/how-interpretations-of-the-phrase-from-the-river-to-the-sea-made-it-so-divisive#:~:text=Art%20%26%20Design-,After%20Tlaib's%20censure%2C%20what%20does%20'from%20the%20river%20to%20the,Israeli%20Jews%20who%20live%20there
+
 Daily Show Compilation (2009/2014)
 https://m.facebook.com/pakistanidefence/videos/jon-stewart-destroys-israel/10152330001112663/
 
