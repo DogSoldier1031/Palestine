@@ -144,6 +144,8 @@ https://genderandsecurity.org/sites/default/files/Weishut_-_Sexual_Torture_of_Pa
 
 https://www.aljazeera.com/amp/features/2023/10/21/number-of-palestinian-prisoners-in-israel-doubles-to-10000-in-two-weeks
 
+https://www.savethechildren.org.uk/news/media-centre/press-releases/new-research-reveals-ongoing-violence-on-palestinian-children--
+
 And they’ve been slaughtering children that whole time too without remorse:
 
 https://www.aljazeera.com/amp/news/2004/4/13/palestinian-children-killed-by-israel
