@@ -210,6 +210,7 @@ https://forward.com/fast-forward/568788/from-the-river-to-the-sea-the-slogan-tha
 “Likud Party: Original Party Platform (1977) The right of the Jewish people to the land of Israel is eternal and indisputable and is linked with the right to security and peace; therefore, Judea and Samaria will not be handed to any foreign administration; between the Sea and the Jordan there will only be Israeli sovereignty.”
 
 https://www.jewishvirtuallibrary.org/original-party-platform-of-the-likud-party
+
 The Mossad Version of Operation Paperclip
 
 https://www.haaretz.com/magazine/2023-06-01/ty-article-magazine/.premium/revealed-how-israel-turned-nazi-war-criminals-into-mossad-agents/00000188-773a-dd65-abae-773a75190000
