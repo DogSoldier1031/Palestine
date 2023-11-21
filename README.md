@@ -197,6 +197,19 @@ https://www.aljazeera.com/amp/news/2023/11/10/israel-revises-death-toll-from-oct
 
 https://www.haaretz.com/israel-news/2023-11-18/ty-article/.premium/israeli-security-establishment-hamas-likely-didnt-have-prior-knowledge-of-nova-festival/0000018b-e2ee-d168-a3ef-f7fe8ca20000
 
+Apparently it’s only bad when the dehumanized Palestinian victims of ethnic cleansing use the phrase "From the river to the sea" in favor of no longer being refugees or concentration camp inhabitants.
+
+“Israeli politicians have also used the phrase to describe the entire area, although more rarely. In 2020, right-wing lawmaker Gideon Saar, an ally-turned-rival of Israeli Prime Minister Benjamin Netanyahu, said, “Between the Jordan River and the sea there won’t be another independent state,” meaning a Palestinian state alongside Israel.
+
+Religious Zionist politician Uri Ariel said in 2014, “Between the Jordan River and the Mediterranean Sea there will be only one state, which is Israel.”
+
+Netanyahu, who also opposes Palestinian statehood, has favored the phrase “west of the Jordan,” which refers to the same territory.”
+
+https://forward.com/fast-forward/568788/from-the-river-to-the-sea-the-slogan-that-led-to-rashida-tlaibs-censure-explained/
+
+“Likud Party: Original Party Platform (1977) The right of the Jewish people to the land of Israel is eternal and indisputable and is linked with the right to security and peace; therefore, Judea and Samaria will not be handed to any foreign administration; between the Sea and the Jordan there will only be Israeli sovereignty.”
+
+https://www.jewishvirtuallibrary.org/original-party-platform-of-the-likud-party
 The Mossad Version of Operation Paperclip
 
 https://www.haaretz.com/magazine/2023-06-01/ty-article-magazine/.premium/revealed-how-israel-turned-nazi-war-criminals-into-mossad-agents/00000188-773a-dd65-abae-773a75190000
