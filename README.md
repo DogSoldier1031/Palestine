@@ -345,4 +345,6 @@ https://www.reddit.com/r/israelexposed/s/piRr3i8nDE
 
 https://www.reddit.com/r/AskMiddleEast/s/mWGvtEqZt1
 
+https://www.reddit.com/r/GazaInvasionFootage/s/FuMOqUHErJ
+
 
