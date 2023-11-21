@@ -182,7 +182,6 @@ https://euromedmonitor.org/en/article/5914/Scholars’-consensus:-Genocide-in-Ga
 
 https://www.theguardian.com/world/2023/oct/31/un-official-resigns-israel-hamas-war-palestine-new-york
 
-
 OCTOBER 7th Attack Details
 
 “Israeli forces shot their own civilians, kibbutz survivor says”
@@ -207,6 +206,10 @@ https://www.jewishvirtuallibrary.org/otto-skorzeny
 The Israeli version of killing the buffaloes
 
 https://x.com/saranajmaii/status/1723379292489363901?s=46
+
+George Habash Interview
+
+https://www.palquest.org/sites/default/files/Taking_Stock.pdf
 
 Lebanon-Palestine-Israel
 
