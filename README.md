@@ -264,6 +264,16 @@ https://en.m.wikipedia.org/wiki/Farhud
 
 https://en.m.wikipedia.org/wiki/Palestinian_refugee_camps
 
+Israeli involvement in Guatemala genocide:
+
+https://nacla.org/news/2013/4/23/israel’s-proxy-war-guatemala
+
+https://panoramas.secure.pitt.edu/news-and-politics/israels-close-relationship-guatemala-has-roots-countrys-civil-war-0
+
+https://www.haaretz.com/israel-news/2021-02-17/ty-article/.premium/israeli-defense-ministry-delays-giving-state-prosecutor-info-on-guatemala-arms-sales/0000017f-f50b-ddde-abff-fd6f39d90000
+
+https://en.m.wikipedia.org/wiki/Guatemalan_genocide
+
 "In fact, a lot depends on context. The Likud Party of Israeli Prime Minister Benjamin Netanyahu said in its original party platform in 1977 that "between the Sea and the Jordan there will only be Israeli sovereignty.'"
 
 https://www.npr.org/2023/11/09/1211671117/how-interpretations-of-the-phrase-from-the-river-to-the-sea-made-it-so-divisive#:~:text=Art%20%26%20Design-,After%20Tlaib's%20censure%2C%20what%20does%20'from%20the%20river%20to%20the,Israeli%20Jews%20who%20live%20there
