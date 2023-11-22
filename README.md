@@ -347,4 +347,10 @@ https://www.reddit.com/r/AskMiddleEast/s/mWGvtEqZt1
 
 https://www.reddit.com/r/GazaInvasionFootage/s/FuMOqUHErJ
 
+https://x.com/media_tak1/status/1727056876276498739?s=46
+
+https://x.com/itslaylas/status/1727059850725872010?s=46
+
+https://x.com/itslaylas/status/1727080775516819782?s=46
+
 
