@@ -223,6 +223,14 @@ The Israeli version of killing the buffaloes
 
 https://x.com/saranajmaii/status/1723379292489363901?s=46
 
+Israel trying to erase Palestinian identity and history:
+
+https://www.ynetnews.com/articles/0,7340,L-3841252,00.html
+
+https://www.independent.co.uk/news/world/middle-east/israel-has-stolen-80-000-palestinian-books-and-manuscripts-since-1948-head-of-arab-league-claims-9823864.html
+
+https://www.haaretz.com/jewish/2015-01-02/ty-article/.premium/people-of-the-stolen-book/0000017f-db08-df0f-a17f-df4b48d70000#
+
 George Habash Interview
 
 https://www.palquest.org/sites/default/files/Taking_Stock.pdf
