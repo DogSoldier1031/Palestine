@@ -256,13 +256,17 @@ Jordan-Palestine-Israel
 
 https://en.m.wikipedia.org/wiki/Black_September
 
-Wider Arab Muslim/Arab Jew/Mizrahi/Jewish Relations
+Expulsion of Jewish populationnin Arab countries & Wider Arab Muslim/Arab Jew/Mizrahi/Jewish Relations
 
 https://www.ida2at.com/how-did-arabs-and-jews-live-in-palestine-before-1948-ad/
 
 https://m.youtube.com/watch?v=lfDhaWlqXf8
 
 https://www.middleeasteye.net/news/iraq-jews-attacks-zionist-role-confirmed-operative-police-report
+
+https://publishing.cdlib.org/ucpressebooks/view?docId=ft2290045n&chunk.id=ch4
+
+https://en.m.wikipedia.org/wiki/Lavon_Affair
 
 https://en.m.wikipedia.org/wiki/Operation_Ezra_and_Nehemiah
 
