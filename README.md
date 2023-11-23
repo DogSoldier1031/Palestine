@@ -256,7 +256,7 @@ Jordan-Palestine-Israel
 
 https://en.m.wikipedia.org/wiki/Black_September
 
-Expulsion of Jewish populationnin Arab countries & Wider Arab Muslim/Arab Jew/Mizrahi/Jewish Relations
+Expulsion of Jewish population in Arab countries & Wider Arab Muslim/Arab Jew/Mizrahi/Jewish Relations
 
 https://www.ida2at.com/how-did-arabs-and-jews-live-in-palestine-before-1948-ad/
 
