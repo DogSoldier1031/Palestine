@@ -382,3 +382,6 @@ https://x.com/itslaylas/status/1727059850725872010?s=46
 https://x.com/itslaylas/status/1727080775516819782?s=46
 
 https://x.com/owenjones84/status/1726948242531782961?s=46
+
+https://www.reddit.com/r/Palestine/s/YFSGCVBTdC
+
