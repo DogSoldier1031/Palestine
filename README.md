@@ -1,5 +1,9 @@
 Palestine & Region
 
+Biden is the all time Top Recipient of pro-Israel lobbying money
+
+https://www.opensecrets.org/industries/recips.php?cycle=2020&ind=q05
+
 https://x.com/ousmannoor/status/1725851968193642611?s=46
 
 https://x.com/robinmonotti/status/1726269331573792791?s=46
