@@ -14,6 +14,8 @@ Theodore Hertzl letter to Cecil Rhodes:
 
 https://journals.sagepub.com/doi/10.1177/0032329221999906#fn13-0032329221999906
 
+https://en.m.wikipedia.org/wiki/Jewish_Colonisation_Association
+
 UN: Origins and Evolution of the Palestine Problem: 1917-1947 (Part I)
 
 “The decision on the Mandate did not take into account the wishes of the people of Palestine, despite the Covenant’s requirements that “the wishes of these communities must be a principal consideration in the selection of the Mandatory”. This assumed special significance because, almost five years before receiving the mandate from the League of Nations, the British Government had given commitments to the Zionist Organization regarding the establishment of a Jewish national home in Palestine, for which Zionist leaders had pressed a claim of “historical connection” since their ancestors had lived in Palestine two thousand years earlier before dispersing in the “Diaspora”.
