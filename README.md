@@ -264,6 +264,8 @@ https://m.youtube.com/watch?v=lfDhaWlqXf8
 
 https://www.middleeasteye.net/news/iraq-jews-attacks-zionist-role-confirmed-operative-police-report
 
+https://archive.ph/XVCQs
+
 https://publishing.cdlib.org/ucpressebooks/view?docId=ft2290045n&chunk.id=ch4
 
 https://en.m.wikipedia.org/wiki/Lavon_Affair
