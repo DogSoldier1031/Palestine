@@ -404,3 +404,7 @@ https://www.aptnnews.ca/national-news/grand-chief-horrified-alberta-quietly-allo
 
 IDF Soldiers (origins)
 https://www.reddit.com/r/Panarab/s/asT7xWbFvF
+
+'We won’t leave’: Armenians in Jerusalem push back against armed settlers
+https://www.aljazeera.com/features/2023/11/24/we-wont-leave-armenians-in-jerusalem-push-back-against-armed-settlers
+
