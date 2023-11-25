@@ -389,5 +389,6 @@ https://x.com/owenjones84/status/1726948242531782961?s=46
 
 https://www.reddit.com/r/Palestine/s/YFSGCVBTdC
 
+https://mobile.mako.co.il/news-israel/2023_q4/Article-288daa79472fb81027.htm
 
 
