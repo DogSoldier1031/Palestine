@@ -62,7 +62,6 @@ https://www.jewishvirtuallibrary.org/plan-dalet-for-war-of-independence-march-19
 * Air strikes against centers within our cities (especially Tel Aviv)
 * Harassment operations carried out by small forces against transportation arteries and settlements to give the operations mentioned above direct or tactical support. These forces will also carry out sabotage operations against vital economic facilities and terrorist raids within cities.”
 
-
 “4. Mounting operations against enemy population centers located inside or near our defensive system in order to prevent them from being used as bases by an active armed force. These operations can be divided into the following categories:
 Destruction of villages (setting fire to, blowing up, and planting mines in the debris), especially those population centers which are difficult to control continuously.
 Mounting search and control operations according to the following guidelines: encirclement of the village and conducting a search7 inside it. In the event of resistance, the. armed force must be destroyed and the population must be expelled outside the borders of the state.
@@ -189,6 +188,12 @@ Not to mention a bunch of human rights officials speaking out against Israel’s
 https://euromedmonitor.org/en/article/5914/Scholars’-consensus:-Genocide-in-Gaza-marks-turning-point,-Israel-must-be-held-accountable
 
 https://www.theguardian.com/world/2023/oct/31/un-official-resigns-israel-hamas-war-palestine-new-york
+
+Less than 2 Month
+
+"GAZA: Number of Palestinians Killed by Israel since October 7 has risen to 14,532, including about 6,000 children"
+
+https://medium.com/collapsenews/gaza-number-of-palestinians-killed-by-israel-since-october-7-has-risen-to-14-532-including-about-8f0ef3863a05
 
 OCTOBER 7th Attack Details
 
