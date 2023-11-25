@@ -119,6 +119,8 @@ https://m.youtube.com/watch?v=3x02rCeusCI
 
 https://www.businessinsider.com/netanyahu-deleted-children-of-darkness-post-gaza-hospital-attack-2023-10?amp
 
+https://youtu.be/GeLQKxH1ejA?si=muzdSn8jxPoNIKAe
+
 https://x.com/terror_alarm/status/1720928284853071879?s=46
 
 https://x.com/intifada/status/1726345295515058255?s=46
