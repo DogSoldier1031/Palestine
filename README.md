@@ -402,4 +402,5 @@ https://www.reddit.com/r/Hasan_Piker/s/BYYCvpKb3v
 “Settlers of a feather flock together”
 https://www.aptnnews.ca/national-news/grand-chief-horrified-alberta-quietly-allows-organ-harvesting-children-die-provincial-care/
 
-
+IDF Soldiers (origins)
+https://www.reddit.com/r/Panarab/s/asT7xWbFvF
