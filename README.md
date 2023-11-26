@@ -425,3 +425,10 @@ https://www.reddit.com/r/Panarab/s/asT7xWbFvF
 'We won’t leave’: Armenians in Jerusalem push back against armed settlers
 https://www.aljazeera.com/features/2023/11/24/we-wont-leave-armenians-in-jerusalem-push-back-against-armed-settlers
 
+When Israel can't exploit cheap Palestinian labor they turn to other people to exploit
+
+https://respect.international/israels-forgotten-thai-workers/
+
+https://www.dw.com/en/israel-hamas-war-will-indian-workers-replace-palestinians/a-67417429
+
+
