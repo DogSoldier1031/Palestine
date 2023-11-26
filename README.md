@@ -244,6 +244,8 @@ https://www.wfp.org/countries/palestine
 
 What happens when people try to break the blockade
 
+www.aljazeera.com/amp/news/2023/8/23/gaza-fisherfolk-can-only-dream-of-fishing-freely-under-israels-blockade
+
 https://en.m.wikipedia.org/wiki/Gaza_flotilla_raid
 
 Israel trying to erase Palestinian identity and history:
