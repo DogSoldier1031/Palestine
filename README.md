@@ -434,3 +434,12 @@ https://respect.international/israels-forgotten-thai-workers/
 https://www.dw.com/en/israel-hamas-war-will-indian-workers-replace-palestinians/a-67417429
 
 
+"Is What's Happening in Gaza a Genocide? Experts Weigh In
+
+- Raz Segal, the program director of genocide studies at Stockton University, concretely says it is a “textbook case of genocide.” Segal believes that Israeli forces are completing three genocidal acts, including, “killing, causing serious bodily harm, and measures calculated to bring about the destruction of the group.” 
+
+- Verdeja, a professor at the University of Notre Dame who specializes in genocide,  says Israel's actions in Gaza are moving toward a “genocidal campaign.” While he notes that it is clear Israeli forces intend to destroy Hamas, “the response when you have a security crisis…can be one of ceasefire, negotiation, or it can be genocide.”
+
+- City University of New York professor Victoria Sanford compares what’s happening in Gaza to the killing or disappearance of more than 200,000 Mayans in Guatemala from 1960-1996, known as the Guatemalan genocide, which is the subject of her book Buried Secrets: Truth and Human Rights in Guatemala."
+
+https://time.com/6334409/is-whats-happening-gaza-genocide-experts/?utm_source=reddit.com
