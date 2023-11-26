@@ -236,6 +236,14 @@ The Israeli version of killing the buffaloes
 
 https://x.com/saranajmaii/status/1723379292489363901?s=46
 
+Food Insecurity from Israeli blockade and control of resources
+
+https://www.wfp.org/countries/palestine
+
+What happens when people try to break the blockade
+
+https://en.m.wikipedia.org/wiki/Gaza_flotilla_raid
+
 Israel trying to erase Palestinian identity and history:
 
 https://www.ynetnews.com/articles/0,7340,L-3841252,00.html
