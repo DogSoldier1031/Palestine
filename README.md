@@ -443,3 +443,6 @@ https://www.dw.com/en/israel-hamas-war-will-indian-workers-replace-palestinians/
 - City University of New York professor Victoria Sanford compares what’s happening in Gaza to the killing or disappearance of more than 200,000 Mayans in Guatemala from 1960-1996, known as the Guatemalan genocide, which is the subject of her book Buried Secrets: Truth and Human Rights in Guatemala."
 
 https://time.com/6334409/is-whats-happening-gaza-genocide-experts/?utm_source=reddit.com
+
+
+https://www.reddit.com/r/israelexposed/s/s6XxXnJcZn
