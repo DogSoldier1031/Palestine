@@ -214,6 +214,12 @@ https://www.aljazeera.com/amp/news/2023/11/10/israel-revises-death-toll-from-oct
 
 https://www.haaretz.com/israel-news/2023-11-18/ty-article/.premium/israeli-security-establishment-hamas-likely-didnt-have-prior-knowledge-of-nova-festival/0000018b-e2ee-d168-a3ef-f7fe8ca20000
 
+October 7 Hostages Words
+
+https://www.reddit.com/r/MajorityReport/s/ZU3lt90Ngv
+
+https://amp.theguardian.com/world/2023/oct/24/freed-gaza-hostages-named-yocheved-lifshitz-nurit-cooper
+
 Apparently it’s only bad when the dehumanized Palestinian victims of ethnic cleansing use the phrase "From the river to the sea" in favor of no longer being refugees or concentration camp inhabitants.
 
 “Israeli politicians have also used the phrase to describe the entire area, although more rarely. In 2020, right-wing lawmaker Gideon Saar, an ally-turned-rival of Israeli Prime Minister Benjamin Netanyahu, said, “Between the Jordan River and the sea there won’t be another independent state,” meaning a Palestinian state alongside Israel.
