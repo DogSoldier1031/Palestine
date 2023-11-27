@@ -121,6 +121,10 @@ https://m.youtube.com/watch?v=3x02rCeusCI
 
 https://www.businessinsider.com/netanyahu-deleted-children-of-darkness-post-gaza-hospital-attack-2023-10?amp
 
+"Palestinian shopkeepers in Hebron are drowning in the rubbish of Israeli settlers"
+
+https://observers.france24.com/en/20100910-hebron-palestinian-shopkeepers-are-drowning-rubbish-israeli-settlers
+
 https://youtu.be/GeLQKxH1ejA?si=muzdSn8jxPoNIKAe
 
 https://x.com/terror_alarm/status/1720928284853071879?s=46
