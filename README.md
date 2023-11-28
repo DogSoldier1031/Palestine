@@ -127,6 +127,8 @@ https://observers.france24.com/en/20100910-hebron-palestinian-shopkeepers-are-dr
 
 https://youtu.be/GeLQKxH1ejA?si=muzdSn8jxPoNIKAe
 
+https://www.reddit.com/r/MajorityReport/s/Dex2QZDLXU
+
 https://x.com/terror_alarm/status/1720928284853071879?s=46
 
 https://x.com/intifada/status/1726345295515058255?s=46
