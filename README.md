@@ -456,5 +456,6 @@ https://www.dw.com/en/israel-hamas-war-will-indian-workers-replace-palestinians/
 
 https://time.com/6334409/is-whats-happening-gaza-genocide-experts/?utm_source=reddit.com
 
-
 https://www.reddit.com/r/israelexposed/s/s6XxXnJcZn
+
+https://x.com/aryjeay/status/1730012959517131117?s=46
