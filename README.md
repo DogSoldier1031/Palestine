@@ -368,12 +368,6 @@ https://www.reddit.com/r/MajorityReport/s/nIQg60M1MI
 
 https://www.reddit.com/r/Palestine/s/3K8Cah9uTh
 
-Gabor Mate:
-
-https://twitter.com/aaronjmate/status/1718037722445881522/mediaViewer?currentTweet=1718037722445881522&currentTweetUser=aaronjmate
-
-https://www.reddit.com/r/Palestine/s/FY7Da0rRyS
-
 MISC LINKS
 
 "Apartheid South Africa reached a tipping point, Israel will, too"
