@@ -356,8 +356,6 @@ https://m.youtube.com/watch?v=lFoxL3sOAio
 Gaza Fights For Freedom (2019) | Full Documentary | Directed by Abby Martin
 https://m.youtube.com/watch?v=HnZSaKYmP2s
 
-Norman Finkelstein:
-
 https://m.youtube.com/watch?v=nUfWTHbCS78
 
 https://m.youtube.com/watch?v=jlkFLVCGacE
