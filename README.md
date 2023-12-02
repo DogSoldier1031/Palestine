@@ -175,6 +175,16 @@ https://www.theguardian.com/world/2006/nov/08/israel2
 
 https://www.theguardian.com/world/2015/jun/11/israel-clears-military-gaza-beach-children
 
+They also apparently have very poor protection in place for children in Israel itself as well:
+
+https://www.cbsnews.com/amp/news/how-jewish-american-pedophiles-hide-from-justice-in-israel/
+
+https://www.timesofisrael.com/many-accused-jewish-pedophiles-in-us-flee-to-israel-report/amp/
+
+https://www.haaretz.com/israel-news/2022-07-25/ty-article/.premium/tip-of-the-iceberg-how-foreign-sex-offenders-find-refuge-in-israel/00000182-3532-d7e9-af96-3d73c52c0000
+
+https://m.jpost.com/israel-news/article-741881
+
 “However, the International Court of Justice (ICJ) ruled in its 2004 advisory opinion that Israel could not invoke Article 51 against a threat coming from an occupied territory over which it has control but that it has the right to respond with actions in conformity with applicable international law.”
 
 https://www.atlanticcouncil.org/blogs/menasource/gaza-israel-occupied-international-law/#:~:text=However%2C%20the%20International%20Court%20of%20Justice%20(ICJ),actions%20in%20conformity%20with%20applicable%20international%20law.
