@@ -77,6 +77,8 @@ https://www.jta.org/2019/03/05/ideas/mizrahi-jewish-spies-fought-to-build-israel
 
 https://www.theguardian.com/world/2013/feb/28/ethiopian-women-given-contraceptives-israel
 
+https://www.independent.co.uk/news/world/middle-east/israel-gave-birth-control-to-ethiopian-jews-without-their-consent-8468800.html
+
 They barely hide their eugenicist ideology:
 
 “By law genetic information/genetic testing may require obtaining explanations from a doctor and informed consent to perform the test, and should be checked only in the laboratory by a genetic institute recognized and licensed. Such a thing can not exist kits sold directly to the public," the Ministry of Health told Israeli publication Yediot Aharonot. "Such kits are also highly criticized, for their reliability, for the interpretation of their results, and for possible effects on subjects and their families."
