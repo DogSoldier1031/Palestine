@@ -236,17 +236,17 @@ https://www.reuters.com/world/middle-east/pressure-israel-over-civilians-steps-u
 
 1 MONTH
 
+"GAZA: Number of Palestinians Killed by Israel since October 7 has risen to 14,532, including about 6,000 children"
+
+https://medium.com/collapsenews/gaza-number-of-palestinians-killed-by-israel-since-october-7-has-risen-to-14-532-including-about-8f0ef3863a05
+
+Less than 2 months
+
 Not to mention a bunch of human rights officials speaking out against Israel’s genocidal intents 
 
 https://euromedmonitor.org/en/article/5914/Scholars’-consensus:-Genocide-in-Gaza-marks-turning-point,-Israel-must-be-held-accountable
 
 https://www.theguardian.com/world/2023/oct/31/un-official-resigns-israel-hamas-war-palestine-new-york
-
-Less than 2 Month
-
-"GAZA: Number of Palestinians Killed by Israel since October 7 has risen to 14,532, including about 6,000 children"
-
-https://medium.com/collapsenews/gaza-number-of-palestinians-killed-by-israel-since-october-7-has-risen-to-14-532-including-about-8f0ef3863a05
 
 OCTOBER 7th Attack Details
 
