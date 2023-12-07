@@ -248,6 +248,18 @@ https://euromedmonitor.org/en/article/5914/Scholars’-consensus:-Genocide-in-Ga
 
 https://www.theguardian.com/world/2023/oct/31/un-official-resigns-israel-hamas-war-palestine-new-york
 
+Palestinian (+Allies) Documentation of the Genocide in Gaza 
+
+https://instagram.com/wizard_bisan1?igshid=YTQwZjQ0NmI0OA==
+
+https://instagram.com/motaz_azaiza?igshid=YTQwZjQ0NmI0OA==
+
+https://instagram.com/byplestia?igshid=YTQwZjQ0NmI0OA==
+
+https://instagram.com/eid_yara?igshid=YTQwZjQ0NmI0OA==
+
+https://instagram.com/saulwilliams?igshid=YTQwZjQ0NmI0OA==
+
 OCTOBER 7th Attack Details
 
 “Israeli forces shot their own civilians, kibbutz survivor says”
