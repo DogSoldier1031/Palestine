@@ -4,6 +4,14 @@ Biden is the all time Top Recipient of pro-Israel lobbying money
 
 https://www.opensecrets.org/industries/recips.php?cycle=2020&ind=q05
 
+Biden - “If there were not an Israel, we’d have to invent one.”
+
+https://m.youtube.com/watch?v=2HZs-v0PR44
+
+https://m.youtube.com/watch?v=86Nrv5izaTs
+
+
+
 https://x.com/ousmannoor/status/1725851968193642611?s=46
 
 https://x.com/robinmonotti/status/1726269331573792791?s=46
