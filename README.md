@@ -59,6 +59,10 @@ During the period of the Mandate, the Zionist Organization worked to secure the 
 
 https://www.un.org/unispal/history2/origins-and-evolution-of-the-palestine-problem/part-i-1917-1947/
 
+"‘Iron wall’ and ‘Villa in the jungle’ – Israel’s colonialism has many names"
+
+https://mondoweiss.net/2020/09/iron-wall-and-villa-in-the-jungle-israels-colonialism-has-many-names/
+
 Israeli Origins in terror and ethnic cleansing:
 
 https://en.m.wikipedia.org/wiki/Irgun
