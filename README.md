@@ -518,7 +518,6 @@ https://respect.international/israels-forgotten-thai-workers/
 
 https://www.dw.com/en/israel-hamas-war-will-indian-workers-replace-palestinians/a-67417429
 
-
 "Is What's Happening in Gaza a Genocide? Experts Weigh In
 
 - Raz Segal, the program director of genocide studies at Stockton University, concretely says it is a “textbook case of genocide.” Segal believes that Israeli forces are completing three genocidal acts, including, “killing, causing serious bodily harm, and measures calculated to bring about the destruction of the group.” 
@@ -532,3 +531,25 @@ https://time.com/6334409/is-whats-happening-gaza-genocide-experts/?utm_source=re
 https://www.reddit.com/r/israelexposed/s/s6XxXnJcZn
 
 https://x.com/aryjeay/status/1730012959517131117?s=46
+
+More IOF Rape Accusations
+
+https://amp.theguardian.com/world/2006/may/02/israel
+
+https://forward.com/fast-forward/509979/israeli-soldier-kills-herself-after-reporting-she-was-raped-now-army-probes-suspicions-of-negligence/?amp=1
+
+https://www.timesofisrael.com/idf-officer-charged-over-sexual-assault-of-3-female-subordinates/amp/
+
+https://www.trtworld.com/magazine/palestinian-victim-seeks-new-trial-against-israeli-officers-accused-of-rape-54806
+
+https://www.haaretz.com/israel-news/2016-07-31/ty-article/.premium/brig-gen-buchris-quits-israeli-army-following-rape-charges/0000017f-efd1-d223-a97f-efdd105a0000
+
+https://www.haaretz.com/israel-news/2016-07-21/ty-article/.premium/idf-general-indicted-for-rape-and-indecent-acts/0000017f-e746-d97e-a37f-f767d8920000
+
+https://www.timesofisrael.com/idf-soldier-who-raped-female-comrade-gets-5-5-years-in-jail/amp/
+
+https://www.haaretz.com/2015-05-21/ty-article/.premium/three-soldiers-charged-with-rape-sodomy/0000017f-e82d-da9b-a1ff-ec6f54300000
+
+https://elanasztokman.substack.com/p/female-idf-soldiers-were-raped-and
+
+https://www.timesofisrael.com/probe-reveals-senior-idf-officer-lured-minors-online/amp/
