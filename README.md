@@ -29,6 +29,10 @@ Theodore Hertzl letter to Cecil Rhodes:
 
 https://journals.sagepub.com/doi/10.1177/0032329221999906#fn13-0032329221999906
 
+Texts Concerning Zionism: “The Iron Wall”
+
+by Vladimir Ze’ev Jabotisnky (November 4, 1923)
+
 "Voluntary Agreement Not Possible.
 
 There can be no voluntary agreement between ourselves and the Palestine Arabs.  Not now, nor in the prospective future.  I say this with such conviction, not because I want to hurt the moderate Zionists.  I do not believe that they will be hurt. Except for those who were born blind, they realised long ago that it is utterly impossible to obtain the voluntary consent of the Palestine Arabs for converting "Palestine" from an Arab country into a country with a Jewish majority.
