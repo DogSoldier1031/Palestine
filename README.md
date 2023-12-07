@@ -10,9 +10,12 @@ https://m.youtube.com/watch?v=2HZs-v0PR44
 
 https://m.youtube.com/watch?v=86Nrv5izaTs
 
-
+Palestinian Representative tearing into the horrors being perpetrated against her people
 
 https://x.com/ousmannoor/status/1725851968193642611?s=46
+
+"With your permission I will clarify what is self defense under international law, so that everyone can understand why there is NOT such a thing that Israel can claim." 
+Francesca Albanese, UN Rapporteur for Palestine
 
 https://x.com/robinmonotti/status/1726269331573792791?s=46
 
