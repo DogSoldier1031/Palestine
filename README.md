@@ -19,10 +19,6 @@ Francesca Albanese, UN Rapporteur for Palestine
 
 https://x.com/robinmonotti/status/1726269331573792791?s=46
 
-Breaking the Silence
-
-https://www.youtube.com/embed/0Mj4OpHEmzk
-
 Theodore Hertzl letter to Cecil Rhodes:
 
 “You are being invited to help make history. That cannot frighten you, nor will you laugh at it. It is not in your accustomed line; it doesn’t involve Africa, but a piece of Asia Minor, not Englishmen but Jews. But had this been on your path, you would have done it by now. How, then, do I happen to turn to you, since this is an out-of-the-way matter for you? How indeed? Because it is something colonial.”
@@ -314,6 +310,10 @@ What happens when people try to break the blockade
 www.aljazeera.com/amp/news/2023/8/23/gaza-fisherfolk-can-only-dream-of-fishing-freely-under-israels-blockade
 
 https://en.m.wikipedia.org/wiki/Gaza_flotilla_raid
+
+Breaking the Silence
+
+https://www.youtube.com/embed/0Mj4OpHEmzk
 
 Israel trying to erase Palestinian identity and history:
 
