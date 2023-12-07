@@ -256,6 +256,21 @@ https://instagram.com/eid_yara?igshid=YTQwZjQ0NmI0OA==
 
 https://instagram.com/saulwilliams?igshid=YTQwZjQ0NmI0OA==
 
+The "Human Shields" argument
+
+"Demands grow for Gaza war crimes investigation
+Chris McGreal in Jerusalem"
+Mon 12 Jan 2009
+
+"The Israeli military are accused of:
+• Using powerful shells in civilian areas which the army knew would cause large numbers of innocent casualties;
+• Using banned weapons such as phosphorus bombs;
+• Holding Palestinian families as human shields;
+• Attacking medical facilities, including the killing of 12 ambulance men in marked vehicles;
+• Killing large numbers of police who had no military role."
+
+https://amp.theguardian.com/world/2009/jan/13/gaza-israel-war-crimes
+
 OCTOBER 7th Attack Details
 
 “Israeli forces shot their own civilians, kibbutz survivor says”
