@@ -89,6 +89,11 @@ https://www.amnesty.org/en/latest/campaigns/2022/02/israels-system-of-apartheid/
 
 https://www.ohchr.org/en/press-releases/2022/03/israels-55-year-occupation-palestinian-territory-apartheid-un-human-rights
 
+"Leaked document fuels concern Israel plans to push Palestinians from Gaza into Egypt
+Israel says ‘concept paper’ isn't policy, but Palestinians fear ethnic cleansing"
+
+https://www.cbc.ca/amp/1.7015576
+
 They are also actively genocidal and published their plans for everyone to read:
 
 Plan Dalet
