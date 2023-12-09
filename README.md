@@ -258,6 +258,8 @@ Not to mention a bunch of human rights officials speaking out against Israel’s
 
 https://euromedmonitor.org/en/article/5914/Scholars’-consensus:-Genocide-in-Gaza-marks-turning-point,-Israel-must-be-held-accountable
 
+https://reliefweb.int/report/occupied-palestinian-territory/euro-med-monitor-un-recognise-israels-actions-gaza-genocide
+
 https://www.theguardian.com/world/2023/oct/31/un-official-resigns-israel-hamas-war-palestine-new-york
 
 Palestinian (+Allies) Documentation of the Genocide in Gaza 
