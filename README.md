@@ -83,6 +83,8 @@ https://x.com/bonsaisky/status/1715073588347179225?s=46
 
 According to many human rights organizations Israel is an apartheid state:
 
+https://www.btselem.org/topic/apartheid
+
 https://www.hrw.org/report/2021/04/27/threshold-crossed/israeli-authorities-and-crimes-apartheid-and-persecution
 
 https://www.amnesty.org/en/latest/campaigns/2022/02/israels-system-of-apartheid/
