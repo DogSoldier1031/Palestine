@@ -14,6 +14,10 @@ https://m.youtube.com/watch?v=86Nrv5izaTs
 
 https://apnews.com/article/israel-palestinians-un-resolution-ceasefire-humanitarian-6d3bfd31d6c25168e828274d96b85cf8
 
+Robert Wood (and the Biden Regime) cares so little about other human beings he can't even feign sympathy for Palestinians
+
+https://m.youtube.com/watch?v=dFMJ3GYxNl4
+
 "The U.N. General Assembly will hold a special session Tuesday after Egypt and Mauritania invoked Resolution 377, known as “Uniting for Peace.” The move came in response to the U.S. on Friday again vetoing a U.N. Security Council resolution calling for an urgent ceasefire in Gaza. Resolution 377 is designed to be deployed when the Security Council fails to “exercise its primary responsibility for the maintenance of international peace and security.” Turkish President Recep Tayyip Erdoğan called for the U.N. body to be reformed Saturday following the U.S. veto.
 President Recep Tayyip Erdoğan: “With the torment in Gaza, we believe that this helpless and dysfunctional structure of the United Nations will be questioned all over the world. Look, I am saying very openly: Nothing can continue as business as usual after Gaza.”
 Meanwhile, the U.S. State Department bypassed congressional review to approve the emergency sale of over $100 million in tank ammunition to Israel."
