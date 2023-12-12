@@ -433,9 +433,40 @@ https://www.haaretz.com/israel-news/2021-02-17/ty-article/.premium/israeli-defen
 
 https://en.m.wikipedia.org/wiki/Guatemalan_genocide
 
-"In fact, a lot depends on context. The Likud Party of Israeli Prime Minister Benjamin Netanyahu said in its original party platform in 1977 that "between the Sea and the Jordan there will only be Israeli sovereignty.'"
+Israel Organ/Skin Banks
 
-https://www.npr.org/2023/11/09/1211671117/how-interpretations-of-the-phrase-from-the-river-to-the-sea-made-it-so-divisive#:~:text=Art%20%26%20Design-,After%20Tlaib's%20censure%2C%20what%20does%20'from%20the%20river%20to%20the,Israeli%20Jews%20who%20live%20there
+https://www.nbcnews.com/news/amp/wbna34503294
+
+https://amp.theguardian.com/world/2009/dec/21/israeli-pathologists-harvested-organs
+
+https://www.reddit.com/r/Hasan_Piker/s/BYYCvpKb3v
+
+“Settlers of a feather flock together”
+https://www.aptnnews.ca/national-news/grand-chief-horrified-alberta-quietly-allows-organ-harvesting-children-die-provincial-care/
+
+IDF Soldiers (origins)
+https://www.reddit.com/r/Panarab/s/asT7xWbFvF
+
+'We won’t leave’: Armenians in Jerusalem push back against armed settlers
+https://www.aljazeera.com/features/2023/11/24/we-wont-leave-armenians-in-jerusalem-push-back-against-armed-settlers
+
+When Israel can't exploit cheap Palestinian labor they turn to other people to exploit
+
+https://respect.international/israels-forgotten-thai-workers/
+
+https://www.dw.com/en/israel-hamas-war-will-indian-workers-replace-palestinians/a-67417429
+
+"Is What's Happening in Gaza a Genocide? Experts Weigh In
+
+- Raz Segal, the program director of genocide studies at Stockton University, concretely says it is a “textbook case of genocide.” Segal believes that Israeli forces are completing three genocidal acts, including, “killing, causing serious bodily harm, and measures calculated to bring about the destruction of the group.” 
+
+- Verdeja, a professor at the University of Notre Dame who specializes in genocide,  says Israel's actions in Gaza are moving toward a “genocidal campaign.” While he notes that it is clear Israeli forces intend to destroy Hamas, “the response when you have a security crisis…can be one of ceasefire, negotiation, or it can be genocide.”
+
+- City University of New York professor Victoria Sanford compares what’s happening in Gaza to the killing or disappearance of more than 200,000 Mayans in Guatemala from 1960-1996, known as the Guatemalan genocide, which is the subject of her book Buried Secrets: Truth and Human Rights in Guatemala."
+
+https://time.com/6334409/is-whats-happening-gaza-genocide-experts/?utm_source=reddit.com
+
+
 
 Daily Show Compilation (2009/2014)
 https://m.facebook.com/pakistanidefence/videos/jon-stewart-destroys-israel/10152330001112663/
@@ -521,39 +552,6 @@ https://x.com/owenjones84/status/1726948242531782961?s=46
 https://www.reddit.com/r/Palestine/s/YFSGCVBTdC
 
 https://mobile.mako.co.il/news-israel/2023_q4/Article-288daa79472fb81027.htm
-
-Israel Organ/Skin Banks
-
-https://www.nbcnews.com/news/amp/wbna34503294
-
-https://amp.theguardian.com/world/2009/dec/21/israeli-pathologists-harvested-organs
-
-https://www.reddit.com/r/Hasan_Piker/s/BYYCvpKb3v
-
-“Settlers of a feather flock together”
-https://www.aptnnews.ca/national-news/grand-chief-horrified-alberta-quietly-allows-organ-harvesting-children-die-provincial-care/
-
-IDF Soldiers (origins)
-https://www.reddit.com/r/Panarab/s/asT7xWbFvF
-
-'We won’t leave’: Armenians in Jerusalem push back against armed settlers
-https://www.aljazeera.com/features/2023/11/24/we-wont-leave-armenians-in-jerusalem-push-back-against-armed-settlers
-
-When Israel can't exploit cheap Palestinian labor they turn to other people to exploit
-
-https://respect.international/israels-forgotten-thai-workers/
-
-https://www.dw.com/en/israel-hamas-war-will-indian-workers-replace-palestinians/a-67417429
-
-"Is What's Happening in Gaza a Genocide? Experts Weigh In
-
-- Raz Segal, the program director of genocide studies at Stockton University, concretely says it is a “textbook case of genocide.” Segal believes that Israeli forces are completing three genocidal acts, including, “killing, causing serious bodily harm, and measures calculated to bring about the destruction of the group.” 
-
-- Verdeja, a professor at the University of Notre Dame who specializes in genocide,  says Israel's actions in Gaza are moving toward a “genocidal campaign.” While he notes that it is clear Israeli forces intend to destroy Hamas, “the response when you have a security crisis…can be one of ceasefire, negotiation, or it can be genocide.”
-
-- City University of New York professor Victoria Sanford compares what’s happening in Gaza to the killing or disappearance of more than 200,000 Mayans in Guatemala from 1960-1996, known as the Guatemalan genocide, which is the subject of her book Buried Secrets: Truth and Human Rights in Guatemala."
-
-https://time.com/6334409/is-whats-happening-gaza-genocide-experts/?utm_source=reddit.com
 
 https://www.reddit.com/r/israelexposed/s/s6XxXnJcZn
 
