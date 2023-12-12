@@ -24,6 +24,10 @@ Meanwhile, the U.S. State Department bypassed congressional review to approve th
 
 https://www.democracynow.org/2023/12/11/headlines/unga_to_convene_on_gaza_ceasefire_after_us_vetoes_security_council_resolution
 
+"Gaza health system is 'completely collapsing,' international organizations say"
+
+https://www.wbal.com/gaza-health-system-is-completely-collapsing-international-organizations-say/#:~:text=Gaza%20health%20system%20is%20'completely%20collapsing%2C'%20international%20organizations%20say,-December%2011%2C%202023&text=(GAZA)%20—%20The%20health%20care,Organization%20and%20Doctors%20Without%20Borders.
+
 Palestinian Representative tearing into the horrors being perpetrated against her people
 
 https://x.com/ousmannoor/status/1725851968193642611?s=46
