@@ -24,10 +24,6 @@ Meanwhile, the U.S. State Department bypassed congressional review to approve th
 
 https://www.democracynow.org/2023/12/11/headlines/unga_to_convene_on_gaza_ceasefire_after_us_vetoes_security_council_resolution
 
-"Gaza Destruction Worse Than In WWII Germany: EU's Borrell"
-
-https://www.barrons.com/news/gaza-destruction-worse-than-in-wwii-germany-eu-s-borrell-a2c970bd
-
 Palestinian Representative tearing into the horrors being perpetrated against her people
 
 https://x.com/ousmannoor/status/1725851968193642611?s=46
