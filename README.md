@@ -368,6 +368,10 @@ Breaking the Silence
 
 https://www.youtube.com/embed/0Mj4OpHEmzk
 
+Israeli women soldiers give shocking testimonies about Israeli army (Full Documentary, 2007)
+
+https://m.youtube.com/watch?si=yWLi6Vu8k7Cyc4lB&v=jI6rTimkfJE&feature=youtu.be
+
 Israel trying to erase Palestinian identity and history:
 
 https://www.ynetnews.com/articles/0,7340,L-3841252,00.html
