@@ -24,6 +24,12 @@ Meanwhile, the U.S. State Department bypassed congressional review to approve th
 
 https://www.democracynow.org/2023/12/11/headlines/unga_to_convene_on_gaza_ceasefire_after_us_vetoes_security_council_resolution
 
+"UN General Assembly votes overwhelmingly to demand a humanitarian cease-fire in Gaza
+The vote in the 193-member world body was 153 in favor, 10 against and 23 abstentions. The United States and Israel were joined in opposing the resolution by eight countries — Austria, Czechia, Guatemala, Liberia, Micronesia, Nauru, Papua New Guinea, Paraguay.
+The support for a cease-fire resolution was higher than for an Oct. 27 resolution that called for a “humanitarian truce” leading to a cessation of hostilities, where the vote was 120-14 with 45 abstentions."
+
+https://apnews.com/article/un-assembly-israel-palestinians-hamas-vote-resolution-bffc37b2ecc444d906492008cde0aaf6
+
 "Gaza health system is 'completely collapsing,' international organizations say"
 
 https://www.wbal.com/gaza-health-system-is-completely-collapsing-international-organizations-say/#:~:text=Gaza%20health%20system%20is%20'completely%20collapsing%2C'%20international%20organizations%20say,-December%2011%2C%202023&text=(GAZA)%20—%20The%20health%20care,Organization%20and%20Doctors%20Without%20Borders.
