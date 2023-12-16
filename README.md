@@ -10,6 +10,10 @@ https://m.youtube.com/watch?v=2HZs-v0PR44
 
 https://m.youtube.com/watch?v=86Nrv5izaTs
 
+"Despite Biden's doubts, humanitarian agencies consider Gaza toll reliable"
+
+https://www.reuters.com/world/middle-east/despite-bidens-doubts-humanitarian-agencies-consider-gaza-toll-reliable-2023-10-27/
+
 "The vote in the 15-member council was 13-1, with the United Kingdom abstaining. The United States’ isolated stand reflected a growing fracture between Washington and some of its closest allies over Israel’s monthslong bombardment of Gaza. France and Japan were among those supporting the call for a cease-fire."
 
 https://apnews.com/article/israel-palestinians-un-resolution-ceasefire-humanitarian-6d3bfd31d6c25168e828274d96b85cf8
