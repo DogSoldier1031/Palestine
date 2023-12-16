@@ -607,3 +607,8 @@ https://www.haaretz.com/2015-05-21/ty-article/.premium/three-soldiers-charged-wi
 https://elanasztokman.substack.com/p/female-idf-soldiers-were-raped-and
 
 https://www.timesofisrael.com/probe-reveals-senior-idf-officer-lured-minors-online/amp/
+
+HAMAS' 2017 CHARTER
+
+https://www.middleeasteye.net/news/hamas-2017-document-full
+
