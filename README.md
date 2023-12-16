@@ -172,6 +172,10 @@ They barely hide their eugenicist ideology:
 
 https://m.jpost.com/israel-news/want-to-fully-understand-your-family-genealogy-not-without-a-court-order-585230
 
+Lebensraum in action:
+
+https://m.facebook.com/hzahav
+
 They were literally allies with apartheid South Africa:
 
 https://www.theguardian.com/world/2006/feb/07/southafrica.israel
