@@ -63,6 +63,7 @@ Theodore Hertzl letter to Cecil Rhodes:
 https://journals.sagepub.com/doi/10.1177/0032329221999906#fn13-0032329221999906
 
 "We have forgotten that we have not come to an empty land to inherit it, but we have come to conquer a country from people inhabiting it, that governs it by the virtue of its language and savage culture."
+
 Moshe Sharett, 1914, he later became second Prime Minister of Israel
 
 https://www.un.org/es/exhibits/exhibit/writing-on-wall-annexation#:~:text=We%20have%20forgotten%20that%20we,its%20language%20and%20savage%20culture.
