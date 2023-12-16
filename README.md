@@ -47,7 +47,9 @@ Francesca Albanese, UN Rapporteur for Palestine
 
 https://x.com/robinmonotti/status/1726269331573792791?s=46
 
-Texts Concerning Zionism: “The Jewish State”
+TEXTS CONCERNING ZIONISM: 
+
+“The Jewish State”
 by Theodor Herzl (1896)
 
 “There [in Palestine] we shall be a sector of the wall of Europe against Asia, we shall serve as the outpost of civilization against barbarism.”
@@ -59,6 +61,11 @@ Theodore Hertzl letter to Cecil Rhodes:
 “You are being invited to help make history. That cannot frighten you, nor will you laugh at it. It is not in your accustomed line; it doesn’t involve Africa, but a piece of Asia Minor, not Englishmen but Jews. But had this been on your path, you would have done it by now. How, then, do I happen to turn to you, since this is an out-of-the-way matter for you? How indeed? Because it is something colonial.”
 
 https://journals.sagepub.com/doi/10.1177/0032329221999906#fn13-0032329221999906
+
+"We have forgotten that we have not come to an empty land to inherit it, but we have come to conquer a country from people inhabiting it, that governs it by the virtue of its language and savage culture."
+Moshe Sharett, 1914, he later became second Prime Minister of Israel
+
+https://www.un.org/es/exhibits/exhibit/writing-on-wall-annexation#:~:text=We%20have%20forgotten%20that%20we,its%20language%20and%20savage%20culture.
 
 Texts Concerning Zionism: “The Iron Wall”
 
