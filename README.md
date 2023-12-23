@@ -370,6 +370,10 @@ https://forward.com/fast-forward/568788/from-the-river-to-the-sea-the-slogan-tha
 
 https://www.jewishvirtuallibrary.org/original-party-platform-of-the-likud-party
 
+Al-Shifa Hospital Update
+
+https://www.huffpost.com/entry/israel-claims-hamas-al-shifa-hospital-not-supported-evidence-washington-post_n_6584ae91e4b04da98426441c
+
 The Mossad Version of Operation Paperclip
 
 https://www.haaretz.com/magazine/2023-06-01/ty-article-magazine/.premium/revealed-how-israel-turned-nazi-war-criminals-into-mossad-agents/00000188-773a-dd65-abae-773a75190000
