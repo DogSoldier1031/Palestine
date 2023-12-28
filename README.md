@@ -47,6 +47,24 @@ Francesca Albanese, UN Rapporteur for Palestine
 
 https://x.com/robinmonotti/status/1726269331573792791?s=46
 
+Amid U.N. Security Council Intrigue, U.S. Privately Moves To Block Another Option For International Accountability For Gaza
+The Biden administration is finalizing plans to urge Switzerland to reject a request from Palestine and its supporters to hold a conference on violations of the Geneva Conventions.
+By 
+Akbar Shahid Ahmed
+Dec 20, 2023, 02:23 PM EST
+Updated Dec 21, 2023, 10:03 AM EST
+
+https://www.huffpost.com/entry/un-security-council-us-block-accountability-international-gaza_n_6583338ce4b04da984257b9c/amp
+
+Israeli Official Suggests Gaza Be ‘Flattened Completely, Just Like Auschwitz Today’
+In addition to mentioning the Nazi death camp, David Azoulai said in a radio interview that Israel should forcibly send Palestinians to refugee camps in Lebanon.
+By 
+Sanjana Karanth
+Dec 18, 2023, 03:50 PM EST
+Updated Dec 19, 2023
+
+https://www.huffpost.com/entry/israeli-official-gaza-flattened-auschwitz_n_658092fee4b036ecab461ec1
+
 TEXTS CONCERNING ZIONISM: 
 
 “The Jewish State”
