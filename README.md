@@ -372,6 +372,8 @@ October 7 Hostages Words
 
 https://www.reddit.com/r/MajorityReport/s/ZU3lt90Ngv
 
+https://x.com/iamtabish_khan/status/1747359446702203196?s=46
+
 https://amp.theguardian.com/world/2023/oct/24/freed-gaza-hostages-named-yocheved-lifshitz-nurit-cooper
 
 Apparently it’s only bad when the dehumanized Palestinian victims of ethnic cleansing use the phrase "From the river to the sea" in favor of no longer being refugees or concentration camp inhabitants.
