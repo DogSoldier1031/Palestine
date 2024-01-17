@@ -217,17 +217,7 @@ https://www.middleeasteye.net/news/nelson-mandela-30-years-palestine
 
 https://www.theguardian.com/commentisfree/2021/dec/30/desmond-tutu-palestinians-israel
 
-Israeli society is awash in bigotry and hate:
-
-https://m.youtube.com/watch?v=fiOJ6lrX0zY
-
-https://www.theguardian.com/world/2014/jul/20/israelis-cheer-gaza-bombing
-
-https://www.politico.com/news/2022/05/29/israel-jerusalem-march-death-arabs-00035862
-
-https://www.reddit.com/r/TheDeprogram/s/SHNdOQqiTf
-
-https://x.com/censoredmen/status/1717341447744045073?s=46
+ISRAELI SOCIETY IS AWASH IN BIGOTRY & HATE:
 
 “Israel’s Defense Minister — we are fighting “human animals’”
 
@@ -241,13 +231,43 @@ https://www.businessinsider.com/netanyahu-deleted-children-of-darkness-post-gaza
 
 https://observers.france24.com/en/20100910-hebron-palestinian-shopkeepers-are-drowning-rubbish-israeli-settlers
 
-https://youtu.be/GeLQKxH1ejA?si=muzdSn8jxPoNIKAe
+“Israeli bill seeks to prevent Arab citizens from living in Jewish areas - NGOs”
 
-https://www.reddit.com/r/MajorityReport/s/Dex2QZDLXU
+https://m.jpost.com/israel-news/article-745186#google_vignette
+
+“Separate School Systems for Jews and Arabs Are Policy in Israel, Not a ‘Problem’
+The Education Ministry’s systematic disregard of studies, surveys and state comptroller reports has buried hope for education for coexistence”
+
+https://www.haaretz.com/israel-news/2021-05-23/ty-article/.premium/separate-school-systems-for-jews-and-arabs-are-policy-in-israel-not-a-problem/0000017f-efd9-d8a1-a5ff-ffdbfae20000
+
+“In Israeli Maternity Wards, Jewish and Arab Segregation Is the Default
+More than a decade after the practice was exposed in investigative reports, Arab women say it has not ended and the Health Ministry tuns a blind eye”
+
+https://www.haaretz.com/israel-news/2018-05-18/ty-article/in-israeli-maternity-wards-jewish-and-arab-segregation-is-the-default/0000017f-eff8-da6f-a77f-fffe5a450000
+
+“Israeli Arab voices hardly heard in mainstream media, survey finds”
+
+https://m.jpost.com/israel-news/israeli-arab-voices-hardly-heard-in-mainstream-media-survey-finds-520022#google_vignette
+
+March against African immigrants 
+
+https://m.youtube.com/watch?v=fiOJ6lrX0zY
+
+“Israelis gather on hillsides to watch and cheer as military drops bombs on Gaza
+This article is more than 9 years old
+People drink, snack and pose for selfies against a background of explosions as Palestinian death toll mounts in ongoing offensive”
+
+https://www.theguardian.com/world/2014/jul/20/israelis-cheer-gaza-bombing
+
+“‘Death to Arabs’ chanted in Jerusalem march”
+
+https://www.politico.com/news/2022/05/29/israel-jerusalem-march-death-arabs-00035862
+
+Netanyahu defending Hitler and blaming Arabs for his actions 
 
 https://x.com/terror_alarm/status/1720928284853071879?s=46
 
-https://x.com/intifada/status/1726345295515058255?s=46
+
 
 The Israeli government propped up Hamas against more progressive liberatory factions such as the PLO member parties
 
