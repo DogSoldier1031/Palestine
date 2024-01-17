@@ -214,6 +214,8 @@ https://www.theguardian.com/commentisfree/2021/dec/30/desmond-tutu-palestinians-
 
 Israeli society is awash in bigotry and hate:
 
+https://m.youtube.com/watch?v=fiOJ6lrX0zY
+
 https://www.theguardian.com/world/2014/jul/20/israelis-cheer-gaza-bombing
 
 https://www.politico.com/news/2022/05/29/israel-jerusalem-march-death-arabs-00035862
