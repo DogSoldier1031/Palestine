@@ -268,7 +268,6 @@ Netanyahu defending Hitler and blaming Arabs for his actions
 https://x.com/terror_alarm/status/1720928284853071879?s=46
 
 
-
 The Israeli government propped up Hamas against more progressive liberatory factions such as the PLO member parties
 
 https://www.timesofisrael.com/for-years-netanyahu-propped-up-hamas-now-its-blown-up-in-our-faces/amp/
@@ -381,6 +380,8 @@ Mon 12 Jan 2009
 https://amp.theguardian.com/world/2009/jan/13/gaza-israel-war-crimes
 
 OCTOBER 7th Attack Details
+
+https://w.ynet.co.il/yediot/7-days/time-of-darkness?externalurl=true
 
 “Israeli forces shot their own civilians, kibbutz survivor says”
 
