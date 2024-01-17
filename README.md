@@ -154,6 +154,11 @@ Israel says ‘concept paper’ isn't policy, but Palestinians fear ethnic clean
 
 https://www.cbc.ca/amp/1.7015576
 
+"Israel Has Almost as Many Religious Restrictions as Iran, Pew Report Finds
+Israel is one of the top 20 most religiously restrictive countries in the world, research center says"
+
+https://www.haaretz.com/israel-news/2019-07-17/ty-article/israel-has-almost-as-many-religious-restrictions-as-iran-pew-report-finds/0000017f-db95-d856-a37f-ffd525e50000
+
 They are also actively genocidal and published their plans for everyone to read:
 
 Plan Dalet
