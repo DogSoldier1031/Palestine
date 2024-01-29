@@ -2,6 +2,10 @@ Palestine & Region
 
 https://www.israelquotes.com
 
+South African APPLICATION INSTITUTING PROCEEDINGS against Israel
+
+https://d3i6fh83elv35t.cloudfront.net/static/2024/01/192-20231228-app-01-00-en.pdf
+
 Biden is the all time Top Recipient of pro-Israel lobbying money
 
 https://www.opensecrets.org/industries/recips.php?cycle=2020&ind=q05
