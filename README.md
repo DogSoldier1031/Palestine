@@ -1,5 +1,7 @@
 Palestine & Region
 
+https://www.israelquotes.com
+
 Biden is the all time Top Recipient of pro-Israel lobbying money
 
 https://www.opensecrets.org/industries/recips.php?cycle=2020&ind=q05
