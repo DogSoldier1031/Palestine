@@ -6,6 +6,10 @@ South African APPLICATION INSTITUTING PROCEEDINGS against Israel
 
 https://d3i6fh83elv35t.cloudfront.net/static/2024/01/192-20231228-app-01-00-en.pdf
 
+"Netanyahu Ministers Join Thousands of Israelis in 'Resettle Gaza' Conference Calling for Palestinians' Transfer"
+
+https://www.haaretz.com/israel-news/2024-01-28/ty-article/ministers-from-netanyahus-party-join-thousands-of-israelis-at-resettle-gaza-conference/0000018d-512f-dfdc-a5ad-db7f35e10000
+
 Biden is the all time Top Recipient of pro-Israel lobbying money
 
 https://www.opensecrets.org/industries/recips.php?cycle=2020&ind=q05
