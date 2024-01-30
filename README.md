@@ -4,6 +4,8 @@ https://www.israelquotes.com
 
 https://www.reddit.com/r/JewsOfConscience/s/vOJu7810Bv
 
+https://twitter.com/MiddleEastEye/status/1751480836682399772/mediaViewer?currentTweet=1751480836682399772&currentTweetUser=MiddleEastEye
+
 South African APPLICATION INSTITUTING PROCEEDINGS against Israel
 
 https://d3i6fh83elv35t.cloudfront.net/static/2024/01/192-20231228-app-01-00-en.pdf
