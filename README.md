@@ -12,6 +12,8 @@ https://www.nytimes.com/2023/12/10/world/middleeast/israel-qatar-money-prop-up-h
 
 https://x.com/udara_cs/status/1752245928289849702?s=46
 
+https://www.jstor.org/stable/2536016
+
 South African APPLICATION INSTITUTING PROCEEDINGS against Israel
 
 https://d3i6fh83elv35t.cloudfront.net/static/2024/01/192-20231228-app-01-00-en.pdf
