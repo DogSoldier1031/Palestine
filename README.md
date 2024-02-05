@@ -295,7 +295,6 @@ Netanyahu defending Hitler and blaming Arabs for his actions
 
 https://x.com/terror_alarm/status/1720928284853071879?s=46
 
-
 The Israeli government propped up Hamas against more progressive liberatory factions such as the PLO member parties
 
 https://www.timesofisrael.com/for-years-netanyahu-propped-up-hamas-now-its-blown-up-in-our-faces/amp/
@@ -317,6 +316,8 @@ Half of Gazans are children born into a concentration camp
 https://www.npr.org/2023/10/18/1206897328/half-of-gazas-population-is-under-18-heres-what-that-means-for-the-conflict
 
 IDF soldiers have been kidnapping, imprisoning, torturing and raping Palestinians for years but no one criticizes people for supporting Israel in spite of it:
+
+https://m.facebook.com/themuslimvibe/videos/this-documentary-exposed-how-israel-convicts-palestinian-children/250926380114742/
 
 https://www.cair.com/cair_in_the_news/israeli-guards-rape-palestinian-women/
 
