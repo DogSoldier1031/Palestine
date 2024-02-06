@@ -4,6 +4,10 @@ https://www.israelquotes.com
 
 https://www.reddit.com/r/JewsOfConscience/s/vOJu7810Bv
 
+Israel Channel 14 (exposing one Oct 7 lie)
+
+https://x.com/middleeasteye/status/1750074339750445165?s=46
+
 https://twitter.com/MiddleEastEye/status/1751480836682399772/mediaViewer?currentTweet=1751480836682399772&currentTweetUser=MiddleEastEye
 
 https://www.reddit.com/r/USEmpire/s/bRSjg0GK0c
