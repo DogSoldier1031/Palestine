@@ -12,17 +12,15 @@ Naledi Pandor being a boss
 
 https://www.instagram.com/reel/C3BV6LDAoJB/?igsh=MzRlODBiNWFlZA==
 
-Israeli official calling for destruction of UNRWA
+UNRWA
+
+1754845259610173652?s=46
 
 https://twitter.com/MiddleEastEye/status/1751480836682399772/mediaViewer?currentTweet=1751480836682399772&currentTweetUser=MiddleEastEye
 
 Netanyahu supporting Hamas
 
 https://www.nytimes.com/2023/12/10/world/middleeast/israel-qatar-money-prop-up-hamas.html
-
-Psychotic Mayim Bialik
-
-https://x.com/udara_cs/status/1752245928289849702?s=46
 
 Zionist-Nazi Collaboration
 
