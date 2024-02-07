@@ -8,9 +8,15 @@ Israel Channel 14 (exposing one Oct 7 lie)
 
 https://x.com/middleeasteye/status/1750074339750445165?s=46
 
+Naledi Pandor being a boss
+
+https://www.instagram.com/reel/C3BV6LDAoJB/?igsh=MzRlODBiNWFlZA==
+
+Israeli official calling for destruction of UNRWA
+
 https://twitter.com/MiddleEastEye/status/1751480836682399772/mediaViewer?currentTweet=1751480836682399772&currentTweetUser=MiddleEastEye
 
-https://www.reddit.com/r/USEmpire/s/bRSjg0GK0c
+Netanyahu supporting Hamas
 
 https://www.nytimes.com/2023/12/10/world/middleeast/israel-qatar-money-prop-up-hamas.html
 
