@@ -20,9 +20,15 @@ Netanyahu supporting Hamas
 
 https://www.nytimes.com/2023/12/10/world/middleeast/israel-qatar-money-prop-up-hamas.html
 
+Psychotic Mayim Bialik
+
 https://x.com/udara_cs/status/1752245928289849702?s=46
 
+Zionist-Nazi Collaboration
+
 https://www.jstor.org/stable/2536016
+
+https://en.m.wikipedia.org/wiki/Haavara_Agreement
 
 South African APPLICATION INSTITUTING PROCEEDINGS against Israel
 
