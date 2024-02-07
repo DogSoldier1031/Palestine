@@ -14,7 +14,7 @@ https://www.instagram.com/reel/C3BV6LDAoJB/?igsh=MzRlODBiNWFlZA==
 
 UNRWA
 
-1754845259610173652?s=46
+https://x.com/gozukarafurkan/status/1754845259610173652?s=46
 
 https://twitter.com/MiddleEastEye/status/1751480836682399772/mediaViewer?currentTweet=1751480836682399772&currentTweetUser=MiddleEastEye
 
