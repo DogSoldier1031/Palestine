@@ -201,6 +201,18 @@ Israel is one of the top 20 most religiously restrictive countries in the world,
 
 https://www.haaretz.com/israel-news/2019-07-17/ty-article/israel-has-almost-as-many-religious-restrictions-as-iran-pew-report-finds/0000017f-db95-d856-a37f-ffd525e50000
 
+Oct 7 Narrative Inconsistencies 
+
+https://x.com/danielfooksart/status/1737416482479382616?s=46
+
+https://x.com/tweetforthemany/status/1737424701733953915?s=46
+
+https://x.com/middleeasteye/status/1750074339750445165?s=46
+
+https://mondoweiss.net/2024/01/family-of-key-case-in-new-york-times-october-7-sexual-violence-report-renounces-story-says-reporters-manipulated-them/#:~:text=A%20New%20York%20Times%20story,interviewed%20them%20under%20false%20pretenses.
+
+https://www.theguardian.com/media/2024/feb/04/cnn-staff-pro-israel-bias
+
 They are also actively genocidal and published their plans for everyone to read:
 
 Plan Dalet
