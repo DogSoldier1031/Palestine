@@ -307,6 +307,12 @@ March against African immigrants
 
 https://m.youtube.com/watch?v=fiOJ6lrX0zY
 
+“52% of Israeli Jews agree: African migrants are ‘a cancer’”
+
+https://www.timesofisrael.com/most-israeli-jews-agree-africans-are-a-cancer/
+
+
+
 “Israelis gather on hillsides to watch and cheer as military drops bombs on Gaza
 This article is more than 9 years old
 People drink, snack and pose for selfies against a background of explosions as Palestinian death toll mounts in ongoing offensive”
