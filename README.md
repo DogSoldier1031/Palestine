@@ -311,8 +311,6 @@ https://m.youtube.com/watch?v=fiOJ6lrX0zY
 
 https://www.timesofisrael.com/most-israeli-jews-agree-africans-are-a-cancer/
 
-
-
 “Israelis gather on hillsides to watch and cheer as military drops bombs on Gaza
 This article is more than 9 years old
 People drink, snack and pose for selfies against a background of explosions as Palestinian death toll mounts in ongoing offensive”
@@ -523,27 +521,6 @@ George Habash Interview
 
 https://www.palquest.org/sites/default/files/Taking_Stock.pdf
 
-Lebanon-Palestine-Israel
-
-https://en.m.wikipedia.org/wiki/Palestinian_insurgency_in_South_Lebanon
-
-https://en.m.wikipedia.org/wiki/1982_Lebanon_War
-
-https://en.m.wikipedia.org/wiki/Sabra_and_Shatila_massacre
-
-https://www.theguardian.com/world/2007/mar/09/syria.israelandthepalestinians
-
-https://en.m.wikipedia.org/wiki/Allegations_of_war_crimes_in_the_2006_Lebanon_War
-
-https://www.hrw.org/news/2006/08/02/israel/lebanon-end-indiscriminate-strikes-civilians
-
-Anthony Bourdain: No Reservations - Beirut (2006)
-https://vimeo.com/209124416
-
-Jordan-Palestine-Israel
-
-https://en.m.wikipedia.org/wiki/Black_September
-
 Expulsion of Jewish population in Arab countries & Wider Arab Muslim/Arab Jew/Mizrahi/Jewish Relations
 
 https://www.ida2at.com/how-did-arabs-and-jews-live-in-palestine-before-1948-ad/
@@ -565,16 +542,6 @@ https://en.m.wikipedia.org/wiki/Jewish_exodus_from_the_Muslim_world
 https://en.m.wikipedia.org/wiki/Farhud
 
 https://en.m.wikipedia.org/wiki/Palestinian_refugee_camps
-
-Israeli involvement in Guatemala genocide:
-
-https://nacla.org/news/2013/4/23/israel’s-proxy-war-guatemala
-
-https://panoramas.secure.pitt.edu/news-and-politics/israels-close-relationship-guatemala-has-roots-countrys-civil-war-0
-
-https://www.haaretz.com/israel-news/2021-02-17/ty-article/.premium/israeli-defense-ministry-delays-giving-state-prosecutor-info-on-guatemala-arms-sales/0000017f-f50b-ddde-abff-fd6f39d90000
-
-https://en.m.wikipedia.org/wiki/Guatemalan_genocide
 
 Israel Organ/Skin Banks
 
