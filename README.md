@@ -347,6 +347,8 @@ https://www.npr.org/2023/10/18/1206897328/half-of-gazas-population-is-under-18-h
 
 IDF soldiers have been kidnapping, imprisoning, torturing and raping Palestinians for years but no one criticizes people for supporting Israel in spite of it:
 
+https://www.ohchr.org/en/press-releases/2024/02/israelopt-un-experts-appalled-reported-human-rights-violations-against
+
 https://m.facebook.com/themuslimvibe/videos/this-documentary-exposed-how-israel-convicts-palestinian-children/250926380114742/
 
 https://www.cair.com/cair_in_the_news/israeli-guards-rape-palestinian-women/
