@@ -4,7 +4,9 @@ https://www.israelquotes.com
 
 https://www.reddit.com/r/JewsOfConscience/s/vOJu7810Bv
 
-Israel Channel 14 (exposing one Oct 7 lie)
+https://www.instagram.com/reel/C3nbSRTIbrl/?igsh=MzRlODBiNWFlZA==
+
+Israel Channel 14 (Oct 7 narrative)
 
 https://x.com/middleeasteye/status/1750074339750445165?s=46
 
