@@ -6,6 +6,10 @@ https://www.reddit.com/r/JewsOfConscience/s/vOJu7810Bv
 
 https://www.instagram.com/reel/C3nbSRTIbrl/?igsh=MzRlODBiNWFlZA==
 
+Palestinian Jewish identity 
+
+https://scholarworks.lib.csusb.edu/cgi/viewcontent.cgi?article=1052&context=history-in-the-making
+
 "Pew report: PA less restrictive on religion than Israel; Iran slightly worse"
 
 https://www.timesofisrael.com/israel-has-almost-as-many-religious-restrictions-as-iran-report-says/amp/
