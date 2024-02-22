@@ -10,6 +10,11 @@ https://www.instagram.com/reel/C3nbSRTIbrl/?igsh=MzRlODBiNWFlZA==
 
 https://www.timesofisrael.com/israel-has-almost-as-many-religious-restrictions-as-iran-report-says/amp/
 
+"Israel Has Almost as Many Religious Restrictions as Iran, Pew Report Finds
+Israel is one of the top 20 most religiously restrictive countries in the world, research center says"
+
+https://www.haaretz.com/israel-news/2019-07-17/ty-article/israel-has-almost-as-many-religious-restrictions-as-iran-pew-report-finds/0000017f-db95-d856-a37f-ffd525e50000
+
 "The Right to Marry in Israel: An Anti-Miscegenation Law Masquerading as Traditional Religious Values"
 
 https://www.msuilr.org/msuilr-legalforum-blogs/2017/8/24/the-right-to-marry-in-israel-an-anti-miscegenation-law-masquerading-as-traditional-religious-values
