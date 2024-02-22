@@ -6,13 +6,17 @@ https://www.reddit.com/r/JewsOfConscience/s/vOJu7810Bv
 
 https://www.instagram.com/reel/C3nbSRTIbrl/?igsh=MzRlODBiNWFlZA==
 
+"Pew report: PA less restrictive on religion than Israel; Iran slightly worse"
+
+https://www.timesofisrael.com/israel-has-almost-as-many-religious-restrictions-as-iran-report-says/amp/
+
+"The Right to Marry in Israel: An Anti-Miscegenation Law Masquerading as Traditional Religious Values"
+
+https://www.msuilr.org/msuilr-legalforum-blogs/2017/8/24/the-right-to-marry-in-israel-an-anti-miscegenation-law-masquerading-as-traditional-religious-values
+
 Israel Channel 14 (Oct 7 narrative)
 
 https://x.com/middleeasteye/status/1750074339750445165?s=46
-
-Naledi Pandor being a boss
-
-https://www.instagram.com/reel/C3BV6LDAoJB/?igsh=MzRlODBiNWFlZA==
 
 UNRWA
 
