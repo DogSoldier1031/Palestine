@@ -33,6 +33,8 @@ https://x.com/gozukarafurkan/status/1754845259610173652?s=46
 
 https://twitter.com/MiddleEastEye/status/1751480836682399772/mediaViewer?currentTweet=1751480836682399772&currentTweetUser=MiddleEastEye
 
+https://www.theguardian.com/world/2024/feb/22/us-intelligence-unrwa-hamas
+
 Netanyahu supporting Hamas
 
 https://www.nytimes.com/2023/12/10/world/middleeast/israel-qatar-money-prop-up-hamas.html
