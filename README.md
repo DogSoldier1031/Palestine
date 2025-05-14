@@ -1,5 +1,11 @@
 Palestine & Region
 
+A 1933 memo from the Zionist Federation of Germany to the Nazi party promised:
+
+"should the Germans accept the cooperation of the Zionists, these (sic) would try to dissuade Jews abroad from supporting the anti-German boycott."
+
+https://mronline.org/2024/06/28/the-treachery-of-the-nazi-zionist-alliance/
+
 https://www.instagram.com/reel/C6U5k15RE4i/?igsh=MzRlODBiNWFlZA==
 
 https://www.israelquotes.com
